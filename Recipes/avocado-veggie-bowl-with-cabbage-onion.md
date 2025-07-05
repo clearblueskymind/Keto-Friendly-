@@ -5,10 +5,10 @@ A light, creamy, fiber-rich keto bowl that's perfect as a snack or light meal.
 - 4 oz ripe avocado (flesh only, no skin or pit)  
 - 2 oz cabbage, chopped (raw or lightly cooked)  
 - 2 oz onion, diced (raw or lightly sautéed)  
+- **2 oz tomato, chopped** ✅  
 - 1 tbsp avocado oil  
 - Salt and pepper, to taste  
 - Optional: lemon juice, chili flakes, or smoked paprika
-
 ---
 
 ## 👨‍🍳 Instructions:
@@ -24,12 +24,11 @@ A light, creamy, fiber-rich keto bowl that's perfect as a snack or light meal.
 
 | Nutrient     | Amount       |
 |--------------|--------------|
-| **Calories** | ~310 kcal  
-| **Protein**  | ~3g  
+| **Calories** | ~325 kcal  
+| **Protein**  | ~3.5g  
 | **Fat**      | ~29g  
-| **Net Carbs**| ~5g  
-| **Fiber**    | ~7g ✅  
-
+| **Net Carbs**| ~6g  
+| **Fiber**    | ~8g ✅
 ---
 
 ## ✅ Notes:
