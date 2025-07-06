@@ -1,94 +1,114 @@
-# 🍽️ Keto Recipe List  
-*A curated collection of Richard's personalized, keto-aligned recipes — with brief descriptions, categories, and suggested use cases.*
+# 🧾 Richard’s Complete Keto Recipe List  
+*A categorized index of all saved keto recipes, with brief descriptions and primary use cases.*
 
 ---
 
-## 🥣 Smoothies
+## 🥣 Smoothies & Drinks
 
 ### 🥥 Fat-Loaded Fiber Smoothie  
-**A high-fat, ultra-low-protein drink ideal for closing the day.**  
-Built around coconut and olive oil, chia, flax, acacia, and psyllium, this smoothie delivers a powerful 16g fiber and 67g fat. Perfect for avoiding late-night binges.  
-**🏁 Category:** End-of-Day Optimizer
+High-fat, ultra-low-protein drink for closing the day. Built on coconut oil, olive oil, chia, flax, acacia, and psyllium.  
+🏁 **End-of-Day Optimizer**
 
 ---
 
 ### 🧪 Keto Power Nutrient Drink  
-**A nutrient-dense, balanced smoothie with brain and gut support.**  
-Uses 13 oz of coconut milk and 2 cups of soy milk, blended with chia, flax, acacia, Lion’s Mane, Spirulina, and trace minerals. Provides clean energy and hydration.  
-**🏁 Category:** End-of-Day Optimizer / Power Drink
+A nutrient-dense smoothie with 13 oz coconut milk, 2 cups soy milk, whey protein, spirulina, Lion’s Mane, chia, flax, and minerals.  
+🏁 **End-of-Day Optimizer / Power Drink**
 
 ---
 
-## 🥑 Bowls
+### 🥛 Protein-Enhanced Acacia Chia Hydration Jar  
+Whey protein added to chia, flax, acacia, psyllium, cayenne, Terramin, and trace minerals. Balanced fat, fiber, and protein.  
+🥤 **Midday or Light Meal Supplement**
+
+---
+
+### 💧 Plain Fiber Hydration Smoothie  
+No protein, pure fiber focus. Chia, flax, acacia, psyllium, cayenne, trace minerals, and lemon — great for digestion and hydration.  
+🏁 **End-of-Day Optimizer**
+
+---
+
+### 🍋 Acacia Chia Hydration Jar (Original)  
+Light fiber hydration drink with chia, acacia, lemon, flax, cayenne, trace minerals — sipped throughout the day.  
+🥤 **All-day support / Fiber primer**
+
+---
+
+## 🥑 Bowls & Veggie Dishes
 
 ### 🥑 Savory Avocado Fiber Bowl  
-**A satiating mid-day or evening bowl loaded with healthy fats and fiber.**  
-Avocado, olive oil, flax, chia, tomato, cabbage, cucumber, nutritional yeast, and yogurt — a deeply satisfying, digestion-friendly dish.  
-**📌 Use:** Midday Stabilizer or Light Dinner
+Avocado, olive oil, chia, flax, cabbage, tomato, onion, cucumber, nutritional yeast, and yogurt. High fat, high fiber.  
+🏁 **End-of-Day or Midday Stabilizer**
 
 ---
-
-## 🍳 Eggs & Omelets
-
-### 🍳 Three-Egg Veggie Omelet with Yogurt  
-**Protein-rich and creamy, with fiber and veggies blended in.**  
-Eggs poured over sautéed cabbage, onion, tomato, and carrot, plus yogurt, flax, chia, and acacia — a savory, nourishing start to the day.  
-**📌 Use:** Breakfast anchor or post-fasting meal
-
----
-
-## 🦃 Poultry
-
-### 🦃 Baked Turkey Breast (Ninja Grill)  
-**Simple and juicy, cooked low and slow with skin on.**  
-13 oz coconut milk, 2 cups soy milk, olive oil, and all your fiber boosters blended with mushrooms, minerals, and spices.  
-**📌 Use:** Meal prep for multiple days, paired with veggie bowls or smoothies.
-
----
-
-## 🐟 Fish-Based
-
-### 🐟 Sardine Stir-Fry with Konjac Noodles  
-**A savory omega-3-rich stir-fry with low-carb noodles.**  
-Sautéed onion, tomato, kale, and celery mixed with sardines, konjac noodles, and olive oil — served with Thai basil and optional kimchi or lemon.  
-**📌 Use:** Light but filling lunch or dinner.
-
----
-
-## 🥗 Vegetable-Based
 
 ### 🥗 Avocado Veggie Bowl  
-**A raw veggie dish loaded with fat and fiber.**  
-Avocado, tomato, cucumber, onion, cabbage, olive oil, and seeds — a refreshing, anti-inflammatory blend that supports digestion and energy.  
-**📌 Use:** Light lunch or evening refresher.
+A lighter version with raw tomato, cucumber, onion, cabbage, avocado, and olive oil.  
+🥗 **Light lunch or side bowl**
 
 ---
 
-## 🍖 Meats
+## 🍳 Egg-Based Dishes
 
-### 🥩 Simple Pan-Cooked Sirloin Steak  
-**Straightforward, high-protein red meat option.**  
-Best when combined with sautéed vegetables or followed by a fiber drink.  
-**📌 Use:** Lunch anchor or one component of a multi-dish day.
-
----
-
-## 🍵 Soups & Hot Blends *(Coming Soon)*  
-We'll continue expanding into light soups and warm blends as the season and preferences shift.
+### 🍳 Three-Egg Veggie Omelet with Yogurt  
+Eggs blended with flax, chia, acacia, and sautéed onion, tomato, cabbage, and carrots, poured into a pan and slow cooked.  
+🍽️ **Breakfast or Protein-Stable Meal**
 
 ---
 
-## 🛠️ Categories:
-- 🏁 End-of-Day Optimizers  
-- 🥣 Smoothies  
-- 🥑 Bowls  
-- 🍳 Egg-Based  
-- 🐟 Fish  
-- 🥗 Vegetables  
-- 🍖 Meats  
-- 🥄 Fiber Boosters  
-- ☕ Power Drinks  
+## 🐟 Fish-Based Recipes
+
+### 🐟 Sardine Stir-Fry with Konjac Noodles  
+Sautéed onion, kale, celery, tomato, sardines, and konjac noodles with olive oil, herbs, and optional kimchi or chili flakes.  
+🔥 **Protein-light lunch or early dinner**
 
 ---
 
-*This file will evolve as new recipes are added, refined, and recategorized. Each entry links directly to its `.md` recipe for full details and tracking support.*
+## 🍖 Meats & Poultry
+
+### 🦃 Baked Turkey Breast (Ninja Grill)  
+Cooked low and slow to 165°F with skin on. Makes multiple portions. Best paired with veggie bowls or smoothies.  
+🍗 **Meal prep anchor**
+
+---
+
+### 🥩 Pan-Cooked Sirloin Steak  
+Simple red meat prep. Often paired with tomato or veggie sides.  
+🥩 **Lunch or midday protein feature**
+
+---
+
+### 🍗 Chicken Wings (Roasted)  
+Wings roasted with skin on, portioned by weight. Great paired with avocado or hydration jar for balance.  
+🔥 **Fat-forward protein option**
+
+---
+
+### 🐔 Chicken Liver & Onion Bowl  
+Livers sautéed with onion, paprika, kale, and carrot, finished with chia, flax, acacia, cayenne, and nutritional yeast.  
+💪 **Power meal with fiber boost**
+
+---
+
+## 🍽️ Miscellaneous / Seasonal
+
+### 🍝 Spaghetti Squash with Olive Oil & Herbs  
+Baked spaghetti squash seasoned with olive oil, salt, pepper, and optional kale flakes or parsley.  
+🌿 **Dinner side or light dinner base**
+
+---
+
+## 🧭 Functional Categories
+
+- 🏁 **End-of-Day Optimizers**  
+- 🥣 **Smoothies & Hydration Jars**  
+- 🥑 **Bowls & Raw Meals**  
+- 🍳 **Egg-Based Dishes**  
+- 🍖 **Meats & Poultry**  
+- 🐟 **Fish-Based Meals**  
+- 🌿 **Vegetable & Seasonal Sides**
+
+---
+
+*This file will be continuously updated as more recipes are created, improved, or rebalanced. For any recipe listed here, just request the full `.md` version by title.*
