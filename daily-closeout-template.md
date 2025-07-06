@@ -1,5 +1,5 @@
-# 🌙 Daily Keto Close-Out Template  
-*A personalized end-of-day wrap-up for staying on track with fat loss, satiety, and peace of mind.*
+# 🌙 Richard’s Daily Keto Close-Out Template  
+*A structured and mindful evening ritual to finalize nutrition, reinforce healthy patterns, and prepare for restorative rest.*
 
 ---
 
@@ -9,16 +9,16 @@
 
 ## 🧾 Final Daily Nutrition Stats
 
-| Nutrient       | Amount        | Target / Status         |
-|----------------|---------------|--------------------------|
-| **Calories**   | ~1,750 kcal    | ✅ (Target: ≤ 1,800)  
-| **Protein**    | ~63.5g         | ✅ (Target: ≤ 100g)  
-| **Fat**        | ~132.5g        | ✅ (Target: 140–150g goal — close enough)  
-| **Net Carbs**  | ~17.5g         | ✅ (Target: 20–36g)  
-| **Fiber**      | ~33g           | ✅ (Target: ~30g)
+| Nutrient       | Amount (example) | Target / Status         |
+|----------------|------------------|--------------------------|
+| **Calories**   | ~1,750 kcal       | ✅ (Target: ≤ 1,800)  
+| **Protein**    | ~63.5g            | ✅ (Target: ≤ 100g)  
+| **Fat**        | ~132.5g           | ✅ (Target: 140–150g goal — close enough)  
+| **Net Carbs**  | ~17.5g            | ✅ (Target: 20–36g)  
+| **Fiber**      | ~33g              | ✅ (Target: ~30g)
 
 🧠 **Most Recent Ketone Reading:** 0.7 mmol/L *(June 30)*  
-📏 **Current Waist Measurement:** 49 in *(July 6)*
+📏 **Waist Measurement:** 49 inches *(Last logged: July 6)*
 
 ---
 
@@ -26,31 +26,68 @@
 
 ### 1. 📋 Final Food Log  
 - [x] All meals and drinks logged  
-- [x] Macros calculated and in range  
-
-### 2. 🥥 End-of-Day Optimizer  
-- [x] Fat-Loaded Fiber Smoothie (or alternate) consumed  
-
-### 3. 🧠 Mindful Self-Check  
-- [x] Hunger: Satisfied  
-- [x] Craving: Stable  
-- [x] Emotion: Centered  
-
-### 4. 🌿 Tea Ritual  
-- [x] *Mugwort tea prepared and sipped slowly post-smoothie*  
-
-### 5. 🛌 Digestive Wind-Down  
-- [x] No snacking  
-- [x] Gentle stretch or stillness  
-- [x] Mental affirmation: “I’ve done enough today.”
+- [x] Macros reviewed and within target  
+- [x] End-of-day optimizer (fat/fiber smoothie) consumed  
 
 ---
 
-## 💡 Tips for a Clean Close  
-- If any cravings rise, sip water or herbal tea  
-- Remind yourself: *“I’m in ketosis. I’m nourished. I’m winning.”*  
-- Keep tomorrow light and easy — it starts with sleep
+### 🧠 2. Mindful Self-Check (1–2 min)
+
+> Ask yourself:  
+- Did I eat enough during the day?  
+- Am I satisfied now?  
+- Am I reaching for food out of boredom or habit?
+
+✅ This keeps awareness sharp and cravings in perspective.
 
 ---
 
-*This file serves as a reusable template. Copy, paste, and fill in your actual daily stats anytime you want to log or reset the close-out ritual.*
+### 📝 3. Tomorrow Prep (Optional, but Powerful)
+
+> Consider:  
+- Do I want to cook anything in the morning?  
+- Do I need to thaw meat or prep veggies?  
+- Should I set out fiber mix or water?
+
+✅ Even small prep increases control and lowers stress.
+
+---
+
+### 🧘 4. Digestive Wind-Down
+
+> Do the following:  
+- Drink a glass of **mugwort tea** or water  
+- Sit quietly, breathe, or stretch lightly  
+- Avoid late-night grazing  
+- Let your **fiber and fat do their metabolic work**
+
+✅ Let the body rest, digest, and reset.
+
+---
+
+### 💡 5. If Cravings Hit…
+
+> Say to yourself:  
+> “I’ve closed my day. I did what I needed to do. I’m not missing anything.”
+
+Then:  
+- Sip water  
+- Take a 2-minute breath break  
+- Come back to this checklist if needed  
+- Use calm, not calories
+
+---
+
+## ✅ Today’s Close: **COMPLETE**
+
+🔒 Food log closed  
+📊 Stats balanced  
+🥥 End-of-day smoothie complete  
+🌿 Mugwort tea prepared  
+🧠 Self-awareness activated  
+🧘 Body supported for rest  
+💪 Week moving forward strong
+
+---
+
+*Use this file as your nightly ritual template. You can copy it into your log each night and simply update the numbers + notes as needed.*
