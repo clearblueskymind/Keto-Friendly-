@@ -73,7 +73,7 @@ Cooked low and slow to 165°F with skin on. Makes multiple portions. Best paired
 
 ---
 
-### 🥩 Pan-Cooked Sirloin Steak  
+### 🥩 Grilled Sirloin Steak  
 Simple red meat prep. Often paired with tomato or veggie sides.  
 🥩 **Lunch or midday protein feature**
 
