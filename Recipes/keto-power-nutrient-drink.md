@@ -5,8 +5,8 @@
 
 ## 🧾 Ingredients:
 
-- 13 oz unsweetened soy milk  
-- 6 oz full-fat coconut milk  
+- 13 oz **unsweetened full-fat coconut milk** (1 full can)  
+- 2 cups **unsweetened soy milk**  
 - 1 tbsp avocado oil  
 - 1/2 scoop whey protein powder (~12–13g protein)  
 - 1 tbsp ground flaxseed  
@@ -15,7 +15,7 @@
 - 1/2 tsp Spirulina powder  
 - 1 tsp Terramin clay  
 - 2 capsules Lion’s Mane mushroom (open and empty contents)  
-- 1 cayenne pepper capsule (open and empty contents)  
+- 1 cayenne capsule (open and empty contents)  
 - 1 squirt Trace Minerals Concentrase  
 
 ---
@@ -23,44 +23,42 @@
 ## 👨‍🍳 Instructions:
 
 1. **Combine Ingredients:**  
-   Add all ingredients to a high-speed blender. (Start with liquids.)
+   Add all ingredients to a high-speed blender, starting with the liquids.
 
 2. **Blend:**  
-   Blend on high for 30–60 seconds until completely smooth.
+   Blend on high for 30–60 seconds until fully smooth.
 
 3. **Serve:**  
-   Drink immediately, or pour into a jar and sip slowly over 1–2 hours. Shake well if settled.
+   Drink immediately, or refrigerate and sip throughout the day. Shake or stir if it settles.
 
 ---
 
-## 📊 Estimated Nutrition:
+## 📊 Estimated Nutrition (Full Drink)
 
-| Nutrient     | Amount (approx) |
-|--------------|-----------------|
-| **Calories** | ~400–450 kcal  
-| **Protein**  | ~15g  
-| **Fat**      | ~30g  
-| **Net Carbs**| ~3–4g  
+| Nutrient     | Approximate Amount |
+|--------------|---------------------|
+| **Calories** | ~525 kcal  
+| **Fat**      | ~38g  
+| **Protein**  | ~18g  
+| **Net Carbs**| ~4–5g  
 | **Fiber**    | ~10g ✅  
-
-*Note: Values may vary depending on protein powder, coconut milk, and brand of soy milk used.*
 
 ---
 
 ## 🧠 Benefits:
-- ✅ Brain & focus support (Lion’s Mane, Spirulina, Terramin)  
-- ✅ High fiber (chia, flax, acacia)  
+- ✅ Brain and nerve support (Lion’s Mane, Spirulina, Terramin)  
+- ✅ High fiber from acacia, flax, chia  
 - ✅ Healthy fats from coconut + avocado oil  
-- ✅ Gentle thermogenic support (cayenne)  
-- ✅ Electrolyte balance (trace minerals)  
-- ✅ Easy to digest and low carb  
+- ✅ Gentle heat from cayenne  
+- ✅ Complete hydration & electrolyte balance  
 
 ---
 
-## 💡 Use This Drink:
-- As a **morning power drink**  
-- As a **midday stabilizer**  
-- Or as part of a **light eating day** when you need nutrients without bulk
+## 💡 When to Use:
+- **Morning metabolic booster**  
+- **Afternoon stabilizer or fiber reset**  
+- **Light meal replacement** on high-fat, low-protein days  
+- Ideal as a **standalone drink** to complete your daily macros
 
 ---
 
