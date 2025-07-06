@@ -7,20 +7,21 @@ This list supports a full week of ketogenic eating using Richard’s recipe libr
 
 ## 🥩 Protein & Animal Products
 
-| Item                     | Quantity (Weekly)  | Notes                           |
-|--------------------------|--------------------|---------------------------------|
-| Chicken livers           | 1.5–2 lbs          | For 3–4 liver-based meals  
-| Top sirloin / red meat   | 1.5–2 lbs          | Steak bowls, seared or grilled  
-| Eggs                     | 18–24              | For omelets, pour-over dishes  
-| Cheese (Havarti, cheddar)| ~12 oz             | Snacks, omelets, savory bowls  
-| Plain yogurt (zero-fat)  | 1 pint (16 oz)     | Smoothies, yogurt veggie bowls  
+| Item                          | Quantity (Weekly)     | Notes                                    |
+|-------------------------------|------------------------|-------------------------------------------|
+| Chicken livers                | 1.5–2 lbs              | For 3–4 liver-based meals  
+| Top sirloin / red meat        | 1.5–2 lbs              | Steak bowls, seared or grilled  
+| Eggs                          | 18–24                  | For omelets, pour-over dishes  
+| Cheese (Havarti, cheddar)     | ~12 oz                 | Snacks, omelets, savory bowls  
+| Plain yogurt (zero-fat)       | 1 pint (16 oz)         | Smoothies, yogurt veggie bowls  
+| **Fish (e.g., sardines, salmon, mackerel)** | **2 servings (6 oz each)** | Baked, pan-seared, or in noodle bowls ✅  
 
 ---
 
 ## 🥑 Fats & Oils
 
 | Item             | Quantity (Weekly)  | Notes                           |
-|------------------|--------------------|---------------------------------|
+|------------------|--------------------|----------------------------------|
 | Olive oil        | 6–8 tbsp           | Cooking, dressing bowls  
 | Avocado oil      | 6–8 tbsp           | Smoothies, fiber drinks  
 | Coconut oil      | 3–4 tbsp           | Energy and texture in smoothies  
@@ -30,8 +31,8 @@ This list supports a full week of ketogenic eating using Richard’s recipe libr
 
 ## 🥬 Vegetables & Herbs
 
-| Item               | Quantity (Weekly)  | Notes                            |
-|--------------------|--------------------|----------------------------------|
+| Item               | Quantity (Weekly)  | Notes                             |
+|--------------------|--------------------|-----------------------------------|
 | Onion              | 1.5 lbs (4–6 med)  | Core veggie in omelets & bowls  
 | Tomato             | 1.5 lbs (6–8 med)  | Smoothies, sautéed, raw  
 | Cabbage            | ~1 lb              | Sautéed, bowls, fiber boost  
