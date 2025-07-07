@@ -216,3 +216,40 @@ Then:
 ---
 
 *Use this guide as a nightly anchor. Repeat it to reinforce the fat-burning rhythm and protect the mindset you’re building.*
+
+---
+
+## 🧭 Daily Keto Rhythm: Protein First, Fat Later
+
+Richard's foundational daily pattern, optimized for fat-burning, satiety, and craving control.
+
+| Time of Day      | Focus                  | Purpose                                      |
+|------------------|------------------------|----------------------------------------------|
+| **Morning**      | 🥚 Protein-centric      | Muscle support, energy, early satiety  
+| **Early Afternoon** | 🥩 Protein + light fat/fiber | Sustained fuel without overload  
+| **Late Afternoon / Early Evening** | 🥥 Fat + fiber focused | Craving prevention, digestive closure  
+| **Evening Wind-Down** | 💧Hydration + herbal tea | Calm, reset, no more calories  
+
+---
+
+### ✅ Why This Rhythm Works:
+
+- **Protein early**: Supports alertness, reduces cravings, avoids under-eating  
+- **Fat later**: Provides satiety and stable energy without spiking insulin  
+- **Fiber with fat**: Slows digestion, improves gut health, controls appetite  
+- **Evening closure**: Prevents binging and sets the body up for overnight fat burning
+
+---
+
+### 🧾 Sample Day in Rhythm
+
+| Meal           | Macro Focus        | Sample Idea                               |
+|----------------|--------------------|--------------------------------------------|
+| **Breakfast**  | Protein + light fat | Chicken liver with kale and onion  
+| **Lunch**      | Protein + veg fiber | Sirloin with grilled tomato  
+| **Dinner**     | Fat + fiber         | Avocado veggie bowl or fat-loaded smoothie  
+| **Nightcap**   | Fiber or hydration  | Mugwort tea + psyllium or chia jar  
+
+---
+
+*This rhythm is a template, not a trap. Adjust portions and components based on your daily needs — but let this flow guide your fat-burning momentum.*
