@@ -7,7 +7,7 @@
 - 4–6 oz cooked turkey (white or dark meat, skin on or off)  
 - 2 oz cucumber, chopped  
 - 2 oz tomato, chopped  
-- 1 oz onion, thinly sliced  
+- 2 oz onion, thinly sliced  
 - 2 oz cabbage, shredded (raw or lightly wilted)  
 - 1 tbsp olive oil  
 - 1 tbsp ground flaxseed  
