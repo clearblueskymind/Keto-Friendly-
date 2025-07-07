@@ -10,25 +10,26 @@
 - 2 oz onion, chopped or thinly sliced  
 - 2 oz carrot, shredded or thinly sliced  
 - 2 oz celery, chopped  
-- 1 clove garlic, minced  
 - 2 oz cabbage, shredded  
+- 1 clove garlic, minced  
 - 1 tbsp olive oil  
 - 1 tbsp ground flaxseed  
 - 1 tbsp chia seeds  
+- 1 tbsp nutritional yeast  
+- 1 capsule cayenne pepper (emptied into bowl)  
 - 1 tbsp apple cider vinegar  
 - Salt and black pepper to taste  
 
 ---
 
 ## 👨‍🍳 Instructions:
-1. In a large bowl, combine all chopped vegetables: cucumber, tomato, onion, carrot, celery, cabbage, and garlic.  
-2. Add the turkey, cut or shredded into bite-sized pieces.  
-3. Sprinkle in flaxseed and chia seeds.  
+1. Combine all vegetables (cucumber, tomato, onion, carrot, celery, cabbage, garlic) in a large mixing bowl.  
+2. Add turkey, shredded or chopped.  
+3. Add chia seeds, flaxseed, nutritional yeast, and cayenne powder.  
 4. Drizzle with olive oil and apple cider vinegar.  
-5. Add salt and pepper to taste.  
-6. Toss thoroughly until evenly coated.  
-7. Let sit 5–10 minutes to allow chia to begin absorbing moisture.  
-8. Serve fresh, or refrigerate briefly for a chilled version.
+5. Season with salt and pepper.  
+6. Toss well to coat. Let sit 5–10 minutes for chia to absorb liquid.  
+7. Serve fresh or chilled.
 
 ---
 
@@ -36,21 +37,21 @@
 
 | Nutrient     | Amount (Estimate) |
 |--------------|-------------------|
-| **Calories** | ~460 kcal  
-| **Protein**  | ~33g  
-| **Fat**      | ~20g  
-| **Net Carbs**| ~9g *(carrot + onion add a bit)*  
-| **Fiber**    | ~12g ✅  
+| **Calories** | ~475 kcal  
+| **Protein**  | ~35g  
+| **Fat**      | ~21g  
+| **Net Carbs**| ~9g  
+| **Fiber**    | ~13g ✅  
 
 ---
 
 ## ✅ Phase Alignment:
 - 🥚 Protein-forward → Ideal for morning or early afternoon  
-- 🥕 Added vegetables = flavor + fiber  
-- 🧄 Garlic + vinegar support digestion  
-- 🥥 Moderate fat keeps space for evening optimizer  
-- 🔒 Keto-compliant & aligned with fat-burning phase goals
+- 🧄 Garlic, cayenne, vinegar → Digestive support  
+- 🧂 Nutritional yeast → Flavor + B vitamins  
+- 🥥 Moderate fat → Keeps evening optimizer flexible  
+- 🔒 Keto-compliant & fat-burning-aligned
 
 ---
 
-*This recipe is flexible: sub leftover chicken, change veggies, or adjust oil to meet your fat target for the day.*
+*Customize with different protein or adjust veggies and oil to suit your day’s macros.*
