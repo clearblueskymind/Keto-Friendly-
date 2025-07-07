@@ -36,7 +36,7 @@
 | **Protein**  | ~33g  
 | **Fat**      | ~20g  
 | **Net Carbs**| ~7g  
-| **Fiber**    | ~11g ✅  
+| **Fiber**    | ~12g ✅  
 
 ---
 
