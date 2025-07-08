@@ -19,6 +19,11 @@
 - 1 squirt of trace minerals  
 
 ---
+## 🧾 Optional Ingredient
+
+- **Optional**: ½ to 1 cup unsweetened soy milk  
+  Use only if **protein and calorie room allows**, or if preferred for texture
+---
 
 ## 🧪 Nutrition Estimate
 
