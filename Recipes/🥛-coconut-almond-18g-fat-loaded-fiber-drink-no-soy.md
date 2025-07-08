@@ -1,4 +1,5 @@
-# 🥥🌰 Fat-Loaded Fiber Drink (No Soy Milk Version)  
+# 🥥🌰 Fat-Loaded Fiber Drink with Coconut & Almond Flour
+
 *A keto end-of-day optimizer drink with extra fat and fiber using almond flour and coconut flour instead of soy milk.*
 
 ---
