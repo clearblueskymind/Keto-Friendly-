@@ -47,7 +47,19 @@
 
 ---
 
+## ⏱️ Overnight Fast Review (Optional Daily Check-In)
+
+- 🕓 Did I fast for at least 16 hours since last food?  
+  Example: No food from 6 PM to 10 AM ✅  
+- 💧 Am I hydrated this morning before eating?  
+- 🧠 Do I feel light, clear, or ready to fuel the day?
+
+This check-in reinforces metabolic balance and fat-burning rhythm.
+
+---
+
 ## 🧭 Optional Enhancements
+
 
 - Light yoga, walking, or microstretching  
 - 3–5 minute meditation or gratitude  
