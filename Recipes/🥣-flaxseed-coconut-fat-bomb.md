@@ -1,69 +1,77 @@
 # 🥄 Flaxseed Coconut Fat Bomb  
-_A simple, spoonable keto snack or evening optimizer that delivers clean fat, fiber, and satiety._
+_A powerful, fiber-rich fat bomb that can be eaten with a spoon or blended into a warm keto drink for metabolic closure and satiety._
 
 ---
 
 ## 🧾 Ingredients
 
 - **2 tbsp ground flaxseed**  
-- **2 tbsp coconut oil** (virgin, cold-pressed recommended)
-
-Optional:  
-- Pinch of sea salt  
-- Dash of cinnamon or ginger for flavor  
-- Small splash of lemon juice or apple cider vinegar (for digestive boost)
+- **2 tbsp coconut oil** (virgin, cold-pressed)  
+- **1 cup unsweetened soy milk**
 
 ---
 
 ## 🍽️ Instructions
 
-1. Place 2 tbsp ground flaxseed in a small bowl.  
-2. Add 2 tbsp of coconut oil.  
-3. Mix with a spoon until smooth and fully combined.  
-4. Eat with a spoon. Best consumed slowly and mindfully.  
+**Option A — Spoonable:**
+1. In a small bowl, mix 2 tbsp flaxseed with 2 tbsp coconut oil until smooth.  
+2. Eat slowly with a spoon, warm or at room temp.
+
+**Option B — Blended Drink:**
+1. Add all ingredients to a blender.  
+2. Blend until smooth.  
+3. Sip slowly as a creamy, grounding drink.
 
 ---
 
-## 📊 Nutrition Estimate
+## 📊 Nutrition Estimate (Blended Version)
 
 | Nutrient     | Amount     |
 |--------------|------------|
-| **Calories** | ~270 kcal  
-| **Fat**      | ~28g  
-| **Protein**  | ~3g  
-| **Net Carbs**| ~0g  
+| **Calories** | ~350 kcal  
+| **Fat**      | ~32g  
+| **Protein**  | ~10g  
+| **Net Carbs**| ~1g  
 | **Fiber**    | ~6g  
-
-*All values approximate. Minimal carbs, rich in healthy fats and fiber.*
 
 ---
 
 ## 🧠 Why It Works
 
-- ✅ **Extremely low carb**  
-- ✅ **High fat and fiber** for lasting satiety  
-- ✅ No prep or cleanup — ready in 30 seconds  
-- ✅ Helps close the eating window with control  
-- ✅ Pairs well with herbal tea or as an end-of-day capstone
+- ✅ High in fat for satiety and metabolic support  
+- ✅ Fiber-rich for digestion and appetite control  
+- ✅ Extremely low in net carbs  
+- ✅ Fast to prepare, zero cleanup  
+- ✅ Supports evening fasting window and prevents binging
 
 ---
 
 ## 🕓 When to Use
 
-- **Evening fat/fiber closure** before fasting  
-- **Between meals** if fat or fiber is low  
-- **As a craving-killer** to replace dessert or mindless snacking  
-- **During fat-burning keto phases** to meet targets without triggering insulin
+- 💤 **Before bed** to stay full overnight  
+- 🕒 **Afternoon** to close fat/fiber gap  
+- 💥 **Craving reset** without reaching for snacks  
+- 🔥 **During fat-burning phase** to boost satiety without protein spike
+
+---
+
+## 🍋 Optional Add-Ins
+
+- Pinch of sea salt  
+- Dash of cinnamon or ginger  
+- Splash of lemon juice or apple cider vinegar  
+- ¼ tsp cocoa powder  
+- 1 capsule cayenne (opened and mixed in)  
+
+---
+
+## 💡 Category:  
+**End-of-Day Optimizers / Keto Fat Bombs / Fiber Drinks / Smart Snacks**
 
 ---
 
 ## 📝 Notes
 
-- Can be prepared in advance and refrigerated  
-- You can adjust the ratio for lighter or heavier days  
-- Works beautifully in your current metabolic rhythm
-
----
-
-## 💡 Category:
-**Snacks / End-of-Day Optimizers / Fiber Boosters**
+- Works beautifully warm or cold  
+- Can be pre-mixed and sipped through the evening  
+- Easily adjustable for more or less fat or fiber depending on your daily stats
