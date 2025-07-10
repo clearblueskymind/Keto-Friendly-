@@ -14,6 +14,64 @@ This flow is returned anytime you ask:
 
 ---
 
+✅ From now on, here’s how I’ll integrate it:
+
+🔁 When you say:
+
+> “What’s my plan today?”
+“How should I start the day?”
+“What should I do now?”
+“What are my options?”
+
+✅ I will gently ask:
+
+> “First, how’s your energy? Are you feeling Red, Yellow, or Green?”
+
+---
+
+🟣 RED (Very low energy)
+
+🛏️ Prioritize deep rest, stillness, hydration
+
+Skip all non-essential movement
+
+Gentle digestion only — broth, hydration jars, soft bowls
+
+Internal language: “We do less so you can heal more.”
+
+
+🟡 YELLOW (Active recovery, moderate function)
+
+🧘 Gentle movement, light meals, stay in rhythm
+
+Use yellow-minus morning routines and modified cooking
+
+Still prioritize naps, quiet time, no intense exertion
+
+“Protect the burn — don’t break the bank.”
+
+
+🟢 GREEN (Energized, stable)
+
+🏃‍♂️ Optional full movement
+
+Active cooking, cleaning, social or creative activity
+
+Support full macro targets — no need to restrict
+
+“Ride the wave, but don’t crash it.”
+
+---
+
+🧠 Bonus:
+
+If you ever say:
+
+> “Don’t ask — I’m definitely in the yellow-minus zone”
+I’ll skip the question and answer accordingly.
+
+
+
 ## ☀️ Morning Plan (Yellow-Minus)
 
 ---
