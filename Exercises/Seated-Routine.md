@@ -45,9 +45,7 @@
 - [ ] Ankle Pumps (10-15 reps)
 - [ ] Kapalabhati Breathing
 
-      --- Configuration Prompt for LLM Model
-
-      # Exercise Coach Configuration Prompt
+---
 
 Copy and paste this prompt at the start of any new conversation to activate your personal exercise coach:
 
