@@ -1,3 +1,51 @@
+# Daily Exercise Routine
+
+**Your Complete Wellness Practice**  
+*10-15 minutes • Daily practice • Total wellness*
+
+---
+
+## 1. Sit-to-Stand
+- **Reps:** 10 repetitions
+- **Equipment:** 5 lb dumbbells in each hand
+- **Benefits:** Builds leg strength and functional mobility
+
+## 2. Upper Body Circuit (Seated)
+- **Equipment:** 5 lb dumbbells
+- **Sequence:** 
+  1. Bicep curl
+  2. Overhead press
+  3. Tricep extension (bend at elbow)
+  4. Overhead press
+  5. Lower to shoulder height
+  6. Reverse curl to starting position
+- **Benefits:** Complete upper body strength training
+
+## 3. Seated Forward Fold
+- **Movement:** Gentle forward bend while seated
+- **Benefits:** Spinal mobility and lower back flexibility
+
+## 4. Ankle Pumps
+- **Reps:** 10-15 repetitions
+- **Movement:** Flex feet up and down while seated
+- **Benefits:** Improves circulation and reduces leg stiffness
+
+## 5. Kapalabhati Breathing
+- **Rounds:** A few rounds of skull-shining breath
+- **Benefits:** Strengthens respiratory muscles and promotes mental clarity
+
+---
+
+> *"Small consistent actions create lasting change"*
+
+**Daily Checklist:**
+- [ ] Sit-to-Stand (10 reps)
+- [ ] Upper Body Circuit
+- [ ] Seated Forward Fold
+- [ ] Ankle Pumps (10-15 reps)
+- [ ] Kapalabhati Breathing
+
+
 <!DOCTYPE html>
 <html lang="en">
 <head>
