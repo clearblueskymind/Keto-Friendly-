@@ -1,6 +1,6 @@
 ---
 
-🥚 Final Final Version: Keto Garden Egg Salad Bowl
+Final Final Version: Keto Garden Egg Salad Bowl
 
 Loaded with eggs, colorful veggies, olives, healthy fats, and optional fiber boosters — this is a fat-burning phase champion.
 
