@@ -20,10 +20,14 @@
 
 ---
 
-### 3. 🧠 Check in with Body & Mind
+### 3. 🧠 Check in with Body, Mind & Digestion
 - [ ] Assess energy level  
 - [ ] Light physical tension or stress?  
 - [ ] Hunger signals? Emotional cues?  
+- [ ] **Bowel movement check-in:**  
+  > “Did I have a BM yet today?”  
+  - ✔️ Yes → Note: easy / strained / partial  
+  - ❌ No → Log it and observe for patterns  
 - Optional:  
   - 2-minute breath awareness  
   - Gentle stretching  
