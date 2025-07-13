@@ -12,7 +12,8 @@
 - 2 oz tomato, chopped  
 - 4 pitted olives (green or kalamata), chopped or whole  
 - 1 tbsp mayonnaise
-- 1 capsule cayenne 
+- 1 tsp rice vinegar
+- - 1 capsule cayenne 
 - 1 tbsp olive oil *(or avocado oil)*  
 - 1 tbsp fresh cilantro, chopped  
 - 1 tbsp chia seeds  
