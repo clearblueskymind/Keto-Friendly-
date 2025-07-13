@@ -11,14 +11,16 @@
 - 2 oz cucumber, diced  
 - 2 oz tomato, chopped  
 - 4 pitted olives (green or kalamata), chopped or whole  
-- 1 tbsp mayonnaise  
+- 1 tbsp mayonnaise
+- 1 capsule cayenne 
 - 1 tbsp olive oil *(or avocado oil)*  
 - 1 tbsp fresh cilantro, chopped  
-- 1 tsp chia seeds  
-- 1 tsp ground flaxseed  
+- 1 tbsp chia seeds  
+- 1 tbsp ground flaxseed
+- 1 tbsp acacia powder
 - 1 tsp apple cider vinegar or lemon juice  
 - Pinch of paprika or mustard  
-- Salt & black pepper, to taste  
+- 1/4 tsp Salt & 1/4 tsp black pepper, to taste  
 
 ---
 
