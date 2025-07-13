@@ -3,6 +3,19 @@
 
 ---
 
+## 💧 Hydration + Salt (Electrolyte Boost)
+
+- [ ] Drink **1 full quart of water** by breakfast  
+- [ ] Add **¼ tsp sea salt** (or use trace minerals)  
+- Optional additions:
+  - Squeeze of **lemon juice**
+  - Splash of **apple cider vinegar**
+  - Drink warm or room temp to aid digestion
+
+💡 *This supports energy, bowel regularity, and prevents keto-related fatigue or lightheadedness.*
+
+---
+
 ## ✅ Core Morning Routine
 
 ### 1. 🌊 Hydrate Gently
@@ -15,7 +28,7 @@
 ### 2. 💊 Take Supplements & Medications
 - [ ] 1 cup unsweetened soy milk  
 - [ ] Take morning vitamins and medications  
-- [ ] Reflect with intention:
+- [ ] Reflect with intention:  
 > “Today, I will nourish — not overfeed.”
 
 ---
@@ -37,7 +50,7 @@
 
 ### 4. 🍳 Plan First Meal
 - [ ] Choose a **protein-focused** option  
-- [ ] Ask:
+- [ ] Ask:  
 > “Do I need more fat right now, or just protein?”  
 - [ ] Use available leftovers or prepare a fresh recipe  
 - [ ] Avoid long fasts — aim to eat before late morning
@@ -45,7 +58,7 @@
 ---
 
 ### 5. 📊 Log the Day
-- [ ] Note the current date (e.g., July 8, 2024)  
+- [ ] Note the current date (e.g., July 10, 2024)  
 - [ ] Log first intake (e.g., soy milk + supplements)  
 - [ ] Begin macronutrient tracking right away
 
@@ -64,12 +77,11 @@ This check-in reinforces metabolic balance and fat-burning rhythm.
 
 ## 🧭 Optional Enhancements
 
-
 - Light yoga, walking, or microstretching  
 - 3–5 minute meditation or gratitude  
 - Set a day’s food goal:
-  - “Hit fiber target by 5pm.”
-  - “No food after 7pm.”
+  - “Hit fiber target by 5pm.”  
+  - “No food after 7pm.”  
   - “Only drink optimizer if truly hungry.”
 
 ---
