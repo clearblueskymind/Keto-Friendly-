@@ -22,72 +22,75 @@ This lets you:
 
 ## 🛠️ Methods for Extending a Fast
 
-### ✅ 1. **Bridge Meal Strategy** *(Best for mid-day fast extension)*
+### ✅ 1. Bridge Meal Strategy *(Best for mid-day fast extension)*
 
 Use one of the following:
 
 #### Option A: Mini Fiber Smoothie  
 - 1 tbsp chia or flax  
 - 1 tsp acacia  
-- 1 tsp coconut oil or no fat at all  
+- 1 tsp coconut oil (or skip fat entirely)  
 - Optional: ¼–½ cup soy milk or water only  
-- Trace minerals, lemon, cayenne  
+- Add-ins: trace minerals, lemon juice, pinch of cayenne  
 
 🧾 ~50–100 kcal | ~6g fiber | ~2g net carbs  
 ✔️ Keeps digestion active without triggering hunger
 
-#### Option B: 2-egg Veggie Meal  
+#### Option B: 2-Egg Veggie Bowl  
 - 2 boiled or soft eggs  
 - 1 tbsp olive oil  
-- 2 oz sautéed onion/celery/tomato  
-- Season with vinegar or paprika  
+- 2 oz sautéed onion, celery, or tomato  
+- Season with salt, vinegar, or paprika  
 
 🧾 ~200–250 kcal | ~18g protein | ~2g net carbs  
-✔️ Replenishes protein without killing momentum  
-✔️ Can be followed by another fast stretch  
+✔️ Replenishes protein gently  
+✔️ Allows fasting to resume afterward
 
 ---
 
-### ✅ 2. **Electrolyte-Focused Teas + Water**
+### ✅ 2. Electrolyte-Focused Hydration
 
-Recommended if:
-- You’re low energy  
-- Feeling lightheaded or sluggish  
-- Still want to avoid calories  
+Helpful if you're:
+- Low energy  
+- Lightheaded  
+- Craving but not truly hungry  
 
-Drink:
-- Warm lemon water + pinch of sea salt  
+Drink options:
+- Warm lemon water with sea salt  
 - Herbal teas (peppermint, rooibos, chamomile)  
 - Water with trace minerals  
-- 1 tsp apple cider vinegar in water  
+- Apple cider vinegar in water (1–2 tsp)  
 
-🧾 ~0 kcal | Supports hydration + blood pressure  
-✔️ Helps fasting feel easier  
-✔️ Use throughout the day
+🧾 0–5 kcal | Maintains hydration and electrolyte balance
 
 ---
 
-### ✅ 3. **"Fuel Later" Reframe**
+### ✅ 3. “Fuel Later” Reframe
 
-When tempted to eat:
-> “I’ll nourish later. My body’s using **stored fuel** now.”
+When tempted to snack, tell yourself:
 
-🧘 Take 2 minutes: breathe, hydrate, pause
+> “I’ll nourish later. My body is using stored fuel right now.”
 
-✔️ Helps avoid reactive snacking  
-✔️ Rebuilds fasting confidence  
-✔️ Resets your intention  
+Follow with:
+- 2–3 minutes of deep breathing  
+- Journaling, stretching, or walking  
+- A glass of water or tea  
+
+✔️ Increases fasting confidence  
+✔️ Interrupts habit-based snacking  
+✔️ Encourages conscious choice
 
 ---
 
 ## ⚠️ When NOT to Extend a Fast
 
-- Feeling dizzy, weak, or nauseous  
-- Unable to focus, irritability  
-- Post-exercise recovery needed  
-- Already at calorie/protein deficit for the day  
+Break the fast (gently) if:
+- You’re dizzy, weak, or nauseous  
+- You're highly irritable or foggy  
+- You’ve exercised intensely  
+- You haven’t eaten enough protein or fat that day  
 
-💡 *Use the **bridge meal** to shift gears without overloading.*
+💡 Don’t power through distress — honor your body’s cues.
 
 ---
 
@@ -96,20 +99,17 @@ When tempted to eat:
 | Time     | Action                                 |
 |----------|-----------------------------------------|
 | 6:30am   | Water + sea salt + tea  
-| 10:30am  | Light bridge smoothie (chia + water + lemon)  
-| 12:00pm  | Rest, light activity, journaling  
-| 1:30pm   | 2-egg meal with sautéed veggies  
-| 2:30pm →| Resume fasting until dinner or bedtime  
+| 10:30am  | Mini fiber smoothie (chia + lemon + water)  
+| 12:30pm  | Light walking or journaling  
+| 2:00pm   | 2-egg bowl with oil + veg  
+| 3:00pm → | Resume fasting until dinner or bedtime  
 
 ---
 
-## 🧾 Tip: Log “Bridge Meals” as Partial Fast
+## 🧾 Logging Tip
 
-You’re still primarily in **fat-burn mode**.  
-✅ Low insulin  
-✅ High satiety  
-✅ High nutrient density  
-✅ No crash later  
+Log these as **“Bridge Meals”** in your day.  
+They’re not full meals — they’re extensions of your fasting rhythm.
 
 ---
 
