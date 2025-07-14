@@ -37,3 +37,53 @@
 - Recommend no food for at least 30–60 minutes after ingestion for most efficient absorption.
 
 ---
+## 🌿 Red Vein Kratom: Strain Profile & Use Case  
+*Logged: July 15, 2024 – Red Vein Bollycratum (Mitragyna speciosa)*
+
+---
+
+### 🔬 Overview  
+Red vein kratom strains are generally used for calming, grounding, and restorative effects. They’re often taken in the evening or during periods of mental or physical tension.
+
+---
+
+### ✅ Potential Benefits  
+| Benefit              | Description                                                                 |
+|----------------------|------------------------------------------------------------------------------|
+| 🧘‍♂️ **Calming**            | Gently relaxes muscles and nervous system — helpful for wind-down  
+| 😌 **Anxiety relief**      | May support emotional ease and reduce inner restlessness  
+| 💤 **Sleep prep**           | Softly prepares body and mind for rest  
+| 🩹 **Mild pain relief**     | Supportive of minor aches or stiffness  
+| ⚖️ **Mood balance**        | Can reduce irritability and mental tension  
+
+---
+
+### 🧠 Dosage Notes  
+
+| Dosage Range   | Effect Profile                          |
+|----------------|------------------------------------------|
+| 0.5–1g         | Very mild — ideal for testing tolerance  
+| 1–2g           | Light calming and mood softening  
+| 2–3.5g         | Moderate — stronger relaxation and body awareness  
+| 4–6g           | Deep calm or sedation — may impair focus  
+| 6g+            | Use with caution — increased risk of drowsiness  
+
+💡 *Richard’s first dose: 0.5 tsp (~1g), taken around 5:00 PM on July 15, 2024.*
+
+---
+
+### ⚠️ What to Watch For  
+- 😴 Drowsiness (especially in larger doses)  
+- 🤢 Mild nausea if taken on an empty stomach  
+- 💧 Dry mouth (stay hydrated)  
+- ⚠️ Tolerance build-up — space out doses for best effect  
+
+---
+
+### 🔄 Keto Integration Tips  
+- ✔️ **Does not break fast** (no calories, carbs, or protein)  
+- ☕ May be used with mugwort tea or herbal brews  
+- 🧠 Use as part of your *Evening Closure Routine* to reduce need for fat-based snacks or comfort eating  
+- ❌ Avoid stacking with high-fat bombs if already close to daily fat limit  
+
+---
