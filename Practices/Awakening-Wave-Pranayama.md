@@ -179,8 +179,15 @@ Prayer becomes stillness.
 
 And this stillness becomes the homecoming of the soul.
 
+---
 
+🔍 Commentary
 
+In Kapalabhati, the kumbhaka is traditionally practiced after the inhale (antara kumbhaka), creating a sense of upward fire and focused retention.
+
+In the Spinal Wave of Awakening, the kumbhaka naturally arises after the exhale (bahya kumbhaka), evoking a deep inward settling and quiet repose.
+
+These are two entirely distinct practices—both sacred, both true, each revealing different dimensions of the breath’s path to stillness.
 
 ---
 
