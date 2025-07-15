@@ -3,8 +3,6 @@
 
 ---
 
-## Entry #1
-
 | Field               | Detail                                                   |
 |--------------------|----------------------------------------------------------|
 | **Date**           | July 15, 2024 (Monday)  
@@ -87,6 +85,8 @@ Red vein kratom strains are generally used for calming, grounding, and restorati
 - ❌ Avoid stacking with high-fat bombs if already close to daily fat limit  
 
 ---
+
+## Entry #1
 
 🗓️ July 16 (AM)  
 🕓 Time: ~5:00 AM  
