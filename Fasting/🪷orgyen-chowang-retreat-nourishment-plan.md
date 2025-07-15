@@ -218,3 +218,114 @@ Just say “Start retreat focus now” and I’ll take care of the rest.
 Let’s make this next phase meaningful — you’re ready for it.
 
 ---
+
+yes.
+
+---
+
+✅ Retreat Focus: ACTIVATED
+All logs, check-ins, meal planning, hydration, and guidance will now align with your primary intention:
+
+> “Prepare body, mind, and spirit for the July 18–20 retreat — lightly, mindfully, and in flow with the fat-burning ketogenic rhythm.”
+
+
+
+
+---
+
+📅 Current Phase:
+
+Pre-Retreat Integration — Day 1
+Date: Tuesday, July 15, 2025
+Retreat begins: Friday, July 18 at 1pm EST
+
+
+---
+
+🔁 Starting Daily Flow (Default Template)
+
+Whenever you ask:
+
+> “How’s my morning looking?” or
+“What’s the plan today?”
+“What have I done so far?”
+
+
+
+You’ll receive:
+
+
+---
+
+🌄 Morning Check-In – Retreat Focused
+
+Time Block	Focus
+
+6–7am	✅ Mugwort tea / salt water (¼ tsp)
+	✅ Supplements + probiotic (no calories)
+	✅ Breathwork / bowel check
+7–9am	Optional light walk / sunlight / stretching
+10am+	If breaking fast: choose one
+— Light yogurt smoothie	
+— Avocado fiber bowl	
+— Bone broth with greens	
+
+
+> 🧠 “Am I eating to nourish, or to soothe?”
+
+
+
+
+---
+
+🎯 Priorities for the Day
+
+Hydration: 4 quarts total (w/ salt, lemon, ACV, cayenne — if desired)
+
+Meals: Max 2 small, mindful meals (unless fasting)
+
+Fat-burning zone: No more than 75g fat
+
+Protein: Stay ≤ 100g
+
+Carbs: 20–30g net (no more)
+
+Fiber: ~30g via veggies, chia, flax, acacia
+
+Evening: Tea only after 6pm. Kitchen closed.
+
+
+
+---
+
+✨ Daily Reminder
+
+> “I am clearing space for stillness. Everything I eat, think, or skip today is a form of preparation.”
+
+
+
+
+---
+
+✅ Logged:
+
+Retreat mode started. All guidance from here forward will support that.
+
+Whenever you're ready, just say:
+
+“Morning check-in”
+
+“What can I eat?”
+
+“How’s my retreat plan look today?”
+
+“Show me retreat prep meals”
+
+“Hydration log”
+
+“Log it all”
+
+
+Let’s move inward — while staying light, lean, and aligned.
+
+---
