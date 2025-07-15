@@ -28,7 +28,6 @@ Mix well. Sip gradually over the morning fasting window.
 
 Hydrating & gut-supportive during fasting windows
 
----
 
 ### 🥤 Ingredients:
 - Juice of ¼ lemon wedge  
