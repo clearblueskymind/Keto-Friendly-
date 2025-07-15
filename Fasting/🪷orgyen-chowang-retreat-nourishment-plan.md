@@ -674,3 +674,63 @@ Take your time. You’re in sacred prep mode now.
 
 ---
 
+That sounds like a very wise and grounded decision — especially considering your current energy level and the level of pacing and focus you’re committed to for the retreat. 🌿
+
+Here’s a gentle summary of what’s next, so you don’t have to think about it again until you’re ready:
+
+
+---
+
+✅ Tomorrow’s Retreat Setup Plan
+
+Your goal: Prepare your environment and technology for a focused, nourishing retreat experience.
+
+🔌 Tech Setup
+
+[ ] Power up your laptop
+
+[ ] Connect laptop to smart TV (HDMI or screen casting)
+
+[ ] Access the PDF of “Inexhaustible Lake of Ambrosia” on the larger screen
+(Bonus: Open the Lion-Faced Dakini and 5 Dakinis Image PDFs too if available)
+
+
+🧘 Space Setup (Optional, but powerful)
+
+[ ] Create a calm sitting space: chair, cushion, or recliner
+
+[ ] Prepare a retreat journal (physical or digital)
+
+[ ] Set out:
+
+Water + mugwort tea supplies
+
+Notebook + pen
+
+Any Tsok offerings you’re planning to prepare
+
+
+
+
+---
+
+💡 Energy Note
+
+You’re already aligned with the retreat through your food, fasting, hydration, and inner clarity. What you’ve been doing these past few weeks — simplifying, preparing, clarifying — is exactly the kind of groundwork a retreat like this benefits from.
+
+
+---
+
+If you’d like, tomorrow I can provide:
+
+A checklist of Day 1 prep
+
+Your nutritional pacing plan
+
+Optional mantra or morning intention to begin your retreat mindset early
+
+
+For now, rest. You’re right on track.
+We’ll take it one calm, clear step at a time. 🌙🪷
+
+---
