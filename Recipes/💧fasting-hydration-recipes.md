@@ -10,19 +10,35 @@ These hydration blends are designed to:
 
 ---
 
-## 🧪 1. Lemon-Cayenne ACV Flush
+## 🧪 1. Lemon-Cayenne Psyllium Electrolyte Flush  
+*Fasting-safe drink to support hydration, gut motility, and electrolyte balance.*
 
 **Ingredients:**
 - 1 quart filtered water  
 - Juice of 1 lemon wedge (~1 tbsp)  
-- 1–2 tsp raw apple cider vinegar  
-- Pinch of cayenne pepper  
-- (Optional) ¼ tsp sea salt or trace minerals
+- 2 tsp raw apple cider vinegar  
+- 1 squirt trace minerals  
+- 1 cayenne capsule (emptied into drink)  
+- 5 psyllium husk capsules (opened or whole, depending on preference)
 
 **Instructions:**
-Mix well. Sip gradually over the morning fasting window.  
-→ Boosts metabolism, bile flow, hydration, and circulation.
+Mix well and shake periodically while sipping.  
+Consume slowly over 1–2 hours while fasting.
 
+**Benefits:**
+✅ Supports hydration and gut movement  
+✅ Encourages detox via cayenne and lemon  
+✅ Keeps fasting intact — no protein or carbs  
+✅ Promotes fullness and digestive flow  
+✅ Electrolyte support to minimize fatigue
+
+---
+
+🧾 **Fasting Compliance:**  
+- 0g protein  
+- 0g net carbs  
+- Negligible calories  
+- High satiety and electrolyte support
 ---
 
 ## 🌿 2. Mugwort Tea  
