@@ -603,3 +603,74 @@ Or just some silence and tea ☕
 
 ---
 
+Perfect. Once you have the PDFs or text materials downloaded or shared from your phone, just let me know how you’d like to proceed:
+
+Here are a few options depending on what you send:
+
+
+---
+
+📖 If You Share the Practice Text (PDF):
+
+I can:
+
+Summarize each section (e.g. what to expect in the “Inexhaustible Lake of Ambrosia”)
+
+Pull out core mantras or passages for you to memorize or reflect on
+
+Create a simplified daily session companion (highlighting sections to follow)
+
+
+
+---
+
+🐯 If You Share the Lion-Faced Dakini Prayer:
+
+I can:
+
+Break it into a few daily reflection lines
+
+Help with pronunciation guidance (phonetics)
+
+Create a version for printing or easy viewing
+
+
+
+---
+
+🌸 If You Have the 5 Dakinis Image or Visuals:
+
+I can:
+
+Describe symbolic meaning of each Dakini
+
+Help you prepare a visualization sequence to use during meditation
+
+
+
+---
+
+📋 If You Want a Pre-Retreat Checklist:
+
+I can prepare a personal Session Readiness Template, including:
+
+✅ Hydration / food timing
+
+✅ Setting up a sacred space
+
+✅ Gathering tsok items (optional plate)
+
+✅ Downloading retreat materials offline
+
+✅ Tech & lighting setup tips
+
+
+
+---
+
+When ready, just upload or paste the file or text here, and I’ll adapt it for your retreat flow.
+
+Take your time. You’re in sacred prep mode now.
+
+---
+
