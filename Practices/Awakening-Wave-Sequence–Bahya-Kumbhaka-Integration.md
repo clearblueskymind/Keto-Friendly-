@@ -22,6 +22,8 @@ Practitioner: Richard
 
 This pranayama sequence evolved through embodied intuition, integrating gentle bandha engagement, breath retention, and wave-like spinal movement. It began as a simple Root-Breath Prelude and revealed itself as a sacred, living breath-movement meditation.
 
+---
+
 🌱 Phase 1: Root-Breath Prelude
 
 Description:
