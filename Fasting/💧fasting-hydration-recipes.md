@@ -23,6 +23,43 @@ These hydration blends are designed to:
 Mix well. Sip gradually over the morning fasting window.  
 → Boosts metabolism, bile flow, hydration, and circulation.
 
+## 🧪 1.01 Fasting Electrolyte Flush – Chia & Mint Variation  
+*Hydrating & gut-supportive during fasting windows*
+
+---
+
+### 🥤 Ingredients:
+- Juice of ¼ lemon wedge  
+- 2 tsp apple cider vinegar  
+- 1 capsule cayenne pepper (emptied)  
+- 1 squirt of trace mineral drops  
+- **1 tsp chia seeds**  
+- 2–3 fresh mint leaves, muddled or torn  
+- Cold water to fill 1 quart (32 oz)
+
+---
+
+### 🧾 Nutrition (approximate):
+- **Calories:** ~20 kcal  
+- **Net Carbs:** ~1g  
+- **Fat:** ~0.5g  
+- **Fiber:** ~2g  
+
+---
+
+### ✅ Why It Works:
+- Supports electrolyte balance during fasting  
+- Chia adds light fiber and texture without breaking the fast  
+- Mint offers digestive support and refreshing flavor  
+- Lemon, ACV, and cayenne help stimulate metabolism and alkalinity
+
+---
+
+### ☕ Usage:
+- Let sit 5–10 minutes before drinking to allow chia to expand  
+- Shake occasionally to keep ingredients suspended  
+- Ideal mid-morning or afternoon during extended fasts
+
 ---
 
 ## 🌿 2. Mugwort Tea  
