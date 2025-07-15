@@ -127,3 +127,56 @@ These **do not break the fast** or disrupt ketosis/autophagy:
 ---
 
 *Fasting is not about deprivation. It is a conscious, supported pause in digestion so the body can clear, burn, and rebuild. You are learning to flow with your metabolism — not control it by force.*
+
+---
+
+# 🧪 Fasting Folder README
+
+This folder supports Richard’s evolving use of **intermittent**, **spontaneous**, and **gentle fasting protocols** — optimized for his ketogenic, fat-burning rhythm.
+
+---
+
+## 📂 Folder Contents
+
+| File | Purpose |
+|------|---------|
+| `📗fasting-protocol-best-practices.md` | Core fasting rules, what’s allowed, how to re-enter eating  
+| `fasting-hydration-recipes.md` | Salt water, lemon-cayenne mixes, non-caloric herbal drinks  
+| `avocado-smoothie-reentry-series.md` | 6-day light fat smoothie transition (planned for post-fast)  
+| `2025-07-kratom-tracker.md` | Supportive experiments (non-caloric, optional use)  
+
+---
+
+## 🧭 Fasting Philosophy
+
+> “Fasting is not restriction — it’s metabolic rest.”
+
+Richard’s fasting is:
+- **Flexible**: driven by intuition and energy
+- **Supported**: salt, minerals, hydration, teas, and fiber options
+- **Purposeful**: for clarity, digestion, fat-burning, and peace of mind
+
+---
+
+## 🔁 Current Practices
+
+- ✅ 16:8 intermittent fasting (default rhythm)
+- ✅ 24–48 hr spontaneous fasting with support
+- ✅ Avoids rigid extended fasting unless aligned
+- ✅ Uses avocado/fiber smoothies for gentle re-entry
+
+---
+
+## 🧾 Logging Conventions
+
+- Fasting start/end times are noted in the daily log  
+- Hydration drinks are logged by recipe  
+- Probiotic use is documented (safe during fasts)  
+- Bowel movements & kratom use noted as supportive logs  
+
+---
+
+## 🧠 Remember
+
+This folder simplifies the fasting experience without overwhelming details.  
+Richard can refer here when planning, extending, or easing out of a fast.
