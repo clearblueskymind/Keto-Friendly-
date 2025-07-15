@@ -87,3 +87,14 @@ Red vein kratom strains are generally used for calming, grounding, and restorati
 - ❌ Avoid stacking with high-fat bombs if already close to daily fat limit  
 
 ---
+
+🗓️ July 16 (AM)  
+🕓 Time: ~5:00 AM  
+🧪 Dose: ½ tsp Red Vein Bali (Mitragyna speciosa)  
+📍Context: Empty stomach, during extended fast, post-meditation  
+🧠 Observed Effects:  
+- Subtle calm and emotional ease  
+- Slightly more grounded and relaxed in the body  
+- Gentle support for meditation and quietude  
+- No noticeable side effects
+  ---
