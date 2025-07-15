@@ -26,6 +26,7 @@ Mix well and shake periodically while sipping.
 Consume slowly over 1–2 hours while fasting.
 
 **Benefits:**
+
 ✅ Supports hydration and gut movement  
 ✅ Encourages detox via cayenne and lemon  
 ✅ Keeps fasting intact — no protein or carbs  
