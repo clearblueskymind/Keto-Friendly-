@@ -99,6 +99,6 @@ Red vein kratom strains are generally used for calming, grounding, and restorati
 - No noticeable side effects
   ---
 
-  ## Entry #2
+## Entry #2
 
   coming soon :)
