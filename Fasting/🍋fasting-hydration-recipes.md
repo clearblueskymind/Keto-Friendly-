@@ -23,6 +23,7 @@ These hydration blends are designed to:
 Mix well. Sip gradually over the morning fasting window.  
 → Boosts metabolism, bile flow, hydration, and circulation.
 
+---
 ## 🧪 1.01 Fasting Electrolyte Flush – Chia & Mint Variation  
 *Hydrating & gut-supportive during fasting windows*
 
