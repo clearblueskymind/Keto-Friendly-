@@ -25,7 +25,8 @@ Mix well. Sip gradually over the morning fasting window.
 
 ---
 ## 🧪 1.01 Fasting Electrolyte Flush – Chia & Mint Variation  
-*Hydrating & gut-supportive during fasting windows*
+
+Hydrating & gut-supportive during fasting windows
 
 ---
 
