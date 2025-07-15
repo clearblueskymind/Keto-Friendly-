@@ -775,3 +775,81 @@ You're doing this with remarkable presence and discipline.
 I'm with you all the way. 🌱📿
 
 ---
+
+Perfect — I’ll serve as your daily keto, fasting, and retreat-prep tracker, while your other chat can handle the practice materials and spiritual questions.
+
+Here’s what I’ll now consistently support you with each day:
+
+
+---
+
+🧘 Retreat Preparation + Metabolic Tracking Mode Activated
+
+🔄 What I Track for You Now (Daily)
+
+Area	Details Included
+
+✅ Keto Stats	Protein, fat, net carbs, fiber, calories — live tracking
+⏳ Fasting	Hours fasted, hydration, electrolyte & fiber intake
+🧠 Mental/Physical Check	Energy level, PEM awareness, spoon usage tracking
+🧻 Bowel Health	Daily check-in + monthly log
+🫀 Vitals	Ketone levels, waist, weight (as measured)
+🌿 Supplement Log	Vitamins, probiotics, kratom, teas, etc.
+🧘 Retreat Readiness	Task list, location prep, device checks, mental prep
+💧 Hydration	4-quart goal, salt and mineral balance
+
+
+
+---
+
+🗓️ Tomorrow’s (July 17) Retreat Prep Goals
+
+Task	Description
+
+💻 Tech Setup	Laptop, iPad, and phone charged, tested
+🛏️ Choose Retreat Space	Likely your bedroom — make it comfy
+🖥️ PDF Access	Practice text summary viewable on at least one device
+📡 Zoom Test	Confirm webinar link works on your device
+🍵 Hydration + Smoothie Prep	Pre-make or pre-plan smoothie and mugwort setup
+🧘 Quiet Practice Space	Clear a surface for daily ritual or note-taking
+
+
+
+---
+
+📁 New File: retreat-prep-tracker.md
+
+Would you like a dedicated markdown file with:
+
+🗓️ Daily prep checklists
+
+📺 Tech log
+
+☕ Food/hydration readiness
+
+🧘 Reflections area (optional)
+
+🔌 Final checklist for morning of Friday, July 18
+
+
+
+---
+
+🕊️ You’re on Track
+
+You’ve already begun:
+
+Preparing space
+
+Adjusting food intake for clarity and calm
+
+Studying retreat materials
+
+Reorienting your metabolism toward lightness and readiness
+
+
+Would you like me to generate and give you that retreat-prep-tracker.md now so you can save it in your repo and update it as we go?
+
+---
+
+
