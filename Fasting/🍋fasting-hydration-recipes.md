@@ -7,7 +7,8 @@ These hydration blends are designed to:
 - Ease hunger during long fasting windows  
 - Promote digestive and circulatory health  
 - Avoid interfering with autophagy  
-
+---
+## 🥤 Fast-Supportive Hydration Recipes
 ---
 
 ## 🧪 1. Lemon-Cayenne ACV Flush
@@ -116,6 +117,61 @@ Fasting-friendly teas include:
 
 ✅ All are naturally calorie-free and support digestion, mood, or circulation  
 ❌ Avoid stevia- or flavor-enhanced versions during fasting (unless targeted refeed)
+
+---
+
+
+### 6. 🧬 Whey Protein Electrolyte Fiber Drink  
+*A light, no-fat protein drink with digestive support and warming spices.*
+
+**Ingredients:**
+- 3 cups cold water  
+- 1 scoop whey protein isolate (25g protein, 130 kcal)  
+- 5 psyllium capsules (opened or whole)  
+- ½–1 tsp ground ginger  
+- ¼ tsp cinnamon  
+- ¼ tsp nutmeg  
+- ¼ tsp cardamom  
+- 1 squirt trace minerals
+
+**Estimated Nutrition:**
+- **Calories:** ~130 kcal  
+- **Protein:** ~25g  
+- **Fat:** 0g  
+- **Net Carbs:** 1g  
+- **Fiber:** ~4–5g
+
+✅ Preserves muscle while fasting  
+✅ No fat, clean energy  
+✅ Warm spices aid digestion  
+✅ Highly satiating and metabolic-friendly  
+
+---
+
+### 7. 🥣 Nonfat Yogurt & Fiber Digestive Drink  
+*A probiotic, low-protein option to gently nourish the body without interrupting the fast-fat-burn rhythm.*
+
+**Ingredients:**
+- 3 cups water  
+- ¼ cup nonfat plain yogurt  
+- 5 psyllium capsules  
+- 1 tsp apple cider vinegar  
+- ½ tsp ginger  
+- ¼ tsp cinnamon  
+- 1 squirt trace minerals  
+- *(Optional: splash of lemon, dash of mint or nutmeg)*
+
+**Estimated Nutrition:**
+- **Calories:** ~35 kcal  
+- **Protein:** ~3g  
+- **Fat:** 0g  
+- **Net Carbs:** 1–2g  
+- **Fiber:** ~4–5g
+
+✅ Gentle re-entry or mid-fast option  
+✅ Supports gut with probiotics  
+✅ Very low insulin response  
+✅ Excellent hydration + digestion combo  
 
 ---
 
