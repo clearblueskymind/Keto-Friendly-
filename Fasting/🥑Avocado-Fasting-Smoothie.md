@@ -48,7 +48,7 @@ Protein	~2–3g
 
 🧘 Purpose:
 
-Break a longer fast gently without overloading protein or carbs
+Break or extend a longer fast gently without overloading protein or carbs
 
 Keep fat intake moderate to support satiety without spiking insulin
 
