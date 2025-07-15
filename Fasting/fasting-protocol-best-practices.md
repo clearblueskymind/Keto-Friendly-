@@ -12,11 +12,11 @@ These options support hydration, electrolytes, digestion, and metabolic function
 - **Water** – aim for 3–4 quarts per day  
 - **Sea salt** – ¼ tsp per quart recommended for electrolyte balance  
 - **Trace minerals** – 1 squirt per day (optional)  
-- **Apple cider vinegar** – 1 tsp in water (optional, mild GI support)  
+- **Apple cider vinegar** – 1–2 tsp in water (optional, mild GI support)  
 - **Lemon juice** – splash only (½–1 tsp max per quart)  
 - **Herbal teas** – mugwort, peppermint, rooibos, chamomile, nettle  
 - **Cayenne capsule** – if tolerated (may boost circulation/metabolism)  
-- **Probiotics** – capsule form, zero-calorie (OK during fasting)  
+- **Probiotics** – capsule form, zero-calorie (OK during fasting) ✅  
 - **Electrolyte powders** – if **no sweeteners or calories**  
 - **Breathwork & gentle stretching** – boosts lymph flow & fat mobilization  
 
@@ -27,7 +27,31 @@ These options support hydration, electrolytes, digestion, and metabolic function
 - **Gentle movement** – short walks, yoga, or simply standing/stretching  
 - **Journaling** – record hunger signals, mood, mental clarity  
 - **Meditation** – improves regulation of hunger and impulse control  
-- **Cold water rinses or light showers** – stimulates alertness & detox
+- **Cold water rinses or light showers** – stimulates alertness & detox  
+
+---
+
+## 🌿 Probiotics During Fasting
+
+- Safe to take while fasting — especially on an empty stomach  
+- Enhances microbiome reset and gut lining repair  
+- Richard's current dose: **1 capsule/day (~25 billion CFU)**  
+- Take with water, ideally in the **early morning**  
+- May support healthy digestion and smoother bowel rhythm during cleanse phases ✅  
+
+---
+
+## 🔄 Spontaneous Fasting Cleanse Protocol  
+*A natural rhythm for intermittent or extended fasting with supportive hydration and fat-burning intention.*
+
+- Initiated when hunger is low and energy is stable  
+- No rigid time windows — follow how the body feels  
+- Use **avocado smoothies** or small **yogurt + fiber drinks** to gently prolong fasting without breaking ketosis  
+- May last **2–6 days** depending on appetite and clarity  
+- Includes gentle supplementation (probiotics, teas, trace minerals)  
+- Ends with a re-entry meal when hunger returns or a craving for grounding food arises  
+
+> You’re not “skipping meals” — you’re trusting your body to lead the rhythm of intake and burn.
 
 ---
 
@@ -43,7 +67,7 @@ The first thing you eat after fasting should be **gentle, hydrating, and low-car
 | **Light veggie broth or bone broth smoothie** | Warm, salty, gentle on digestion  
 | **Keto hydration drink (fat + fiber)** | Satiety without carb spike  
 | **Eggs + steamed veg (light portion)** | Gentle protein, no sugar hit  
-| **Soft avocado + olive oil + herbs** | High-fat, mineral-rich, soothing  
+| **Soft avocado + olive oil + herbs** | High-fat, mineral-rich, soothing ✅  
 
 > *Avoid* anything high-protein or high-fat if your stomach is uneasy after fasting >12–24 hrs. Ramp up slowly.
 
@@ -71,5 +95,11 @@ The first thing you eat after fasting should be **gentle, hydrating, and low-car
 
 | Phase          | Key Focus                                   |
 |----------------|---------------------------------------------|
-| **During Fast**| Hydration, electrolytes, gentle movement  
-| **Break Fast** | Easy-to-digest: yogurt,
+| **During Fast**| Hydration, electrolytes, probiotics, movement  
+| **Spontaneous Cleanse** | Intuitive fasting + support from light smoothies  
+| **Break Fast** | Easy-to-digest: yogurt, avocado, fiber  
+| **Rebuild**    | Gradual return to full-fat, full-fiber meals  
+
+---
+
+*This file evolves with you. Use it as a soft guide, not a hard rule. Your body knows the path. Trust it.*
