@@ -139,14 +139,6 @@ Can be practiced before or in place of Kapalabhati
 Trust the breath’s own unfolding
 
 
-Closing Blessing:
-
-> Breath becomes wave.
-Wave becomes prayer.
-Prayer becomes stillness.
-
-And this stillness becomes the homecoming of the soul.
-
 
 
 
@@ -176,6 +168,12 @@ I discover the silence that was waiting all along.
 Let this breath rise in grace.
 Let it return in peace.
 Let this stillness be my prayer.
+
+> Breath becomes wave.
+Wave becomes prayer.
+Prayer becomes stillness.
+
+And this stillness becomes the homecoming of the soul.
 
 
 
