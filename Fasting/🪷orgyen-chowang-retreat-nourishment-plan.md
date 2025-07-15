@@ -96,3 +96,125 @@ If participating symbolically at home:
 ---
 
 **May your retreat be nourishing, still, and joyful.**
+---
+
+Excellent, Richard. This shift in focus is a powerful and timely one — and I’ll support you fully in this next phase. Here’s how we’ll reorient everything to align your keto-fat-burning rhythm with optimal preparation for the upcoming retreat (July 18–20):
+
+
+---
+
+✅ PRIMARY FOCUS (Effective Today)
+
+> 🧘‍♂️ “Prepare the body and mind to be still, open, and receptive for retreat.”
+
+
+
+Everything we do with meals, fasting, hydration, and planning will now be in service to this intention — while keeping fat-burning and satiety intact.
+
+
+---
+
+🔄 Updated Daily Priorities (Pre-Retreat Phase)
+
+Area	Priority
+
+Mental clarity	Maintain lightness; no heavy meals in afternoon/evening
+Emotional stability	No sugar swings, caffeine spikes, or overconsumption
+Digestive calm	Smooth bowel function, early dinner closure
+Fat-burning rhythm	Keep low-carb and fat within target, no rebound eating
+Spiritual readiness	Light body → light mind; support stillness & focus
+
+
+
+---
+
+⏱️ Daily Structure — Pre-Retreat Rhythm (July 15–17)
+
+Time	Focus
+
+6–7am	Mugwort tea, supplements, water with sea salt
+8–9am	Breathwork or stretching, journaling, probiotic
+10–11am	Light re-entry smoothie or broth
+12–2pm	Optional meal: avocado, egg, or light veggie bowl
+4:30–5:30pm	If needed: fiber-fat optimizer (not protein)
+6:00pm onward	Tea only. Fasting window begins. Self-check.
+
+
+
+---
+
+🥣 Suggested Core Recipes for Pre-Retreat Days
+
+Meal Type	Recipe/Option
+
+✅ Break-Fast	Yogurt + avocado smoothie (fat + fiber light)
+✅ Midday Meal	Egg salad bowl or broth with veggies (light)
+✅ Evening Drink	Coconut oil + fiber drink or mugwort tea
+✅ Hydration	Salt + lemon + cayenne water (2–4x/day)
+
+
+
+---
+
+🧠 Daily Mantra Prompt (Morning & Evening)
+
+> “I’m clearing space — in body, mind, and spirit — to be fully present during the retreat.”
+
+
+
+
+---
+
+🔒 Nutritional Guardrails (Still Active)
+
+Macro	Target / Range
+
+Fat	60–75g/day
+Protein	≤ 100g
+Net Carbs	20–30g
+Fiber	~30g
+Calories	~1,500–1,700 kcal
+
+
+
+---
+
+🛠️ Additional Supports Before Retreat
+
+🧘 Kapalabhati breathing in the morning
+
+🛌 Earlier sleep (aim for sleep by 10pm)
+
+🌿 Prep retreat space — simple altar, water, tea
+
+📱 Limit distractions — pre-schedule meals, minimize decisions
+
+🍵 Rehearse retreat rhythm with hydration + nourishment schedule this week
+
+
+
+---
+
+📅 Summary Flow: Pre-Retreat Phase (Now – July 17)
+
+Goal	Action
+
+Clear digestion	No late eating, fiber support daily, magnesium tea if needed
+Maintain ketosis	Stay below carb threshold, skip snacking, no grazing
+Prepare emotionally	Stick to rhythm, no “exceptions,” mindful intention daily
+Nourish lightly	No overloads, no binging — just steady fuel
+Hydrate & relax	Salted water, electrolytes, tea, restorative movement
+
+
+
+---
+
+✅ Starting Now…
+
+Would you like me to respond to each new daily check-in using this retreat-focused lens, while still tracking keto stats and meals?
+
+Just say “Start retreat focus now” and I’ll take care of the rest.
+
+Let’s make this next phase meaningful — you’re ready for it.
+
+---
