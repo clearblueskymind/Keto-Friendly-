@@ -329,3 +329,122 @@ Whenever you're ready, just say:
 Let’s move inward — while staying light, lean, and aligned.
 
 ---
+That’s a really smart, retreat-aligned question, Richard. Let’s break it down to match both your fat-burning goals and your retreat preparation intentions:
+
+
+---
+
+🍗 Chicken Wings Broth Plan
+
+✅ Great idea:
+
+Using chicken wings for broth is ideal — wings are collagen-rich (great for gut lining and recovery), have some fat for satiety, and create a light, mineral-rich base.
+
+Add a splash of apple cider vinegar ✅ (helps extract collagen & minerals)
+
+Simmer for 12–24 hours on low with water, salt, herbs if desired
+
+Strain + sip in cups with sea salt or lemon for hydration throughout the retreat prep
+
+Broth ≠ breaking your fast if you sip it plain in small amounts ✅
+
+
+
+---
+
+🥣 What to Do With the Cooked Chicken
+
+Once the broth is done, the meat on the wings will be:
+
+Soft, fall-off-the-bone
+
+Mostly dark meat, with some fat and connective tissue
+
+
+You now have two excellent options, depending on your focus that day:
+
+
+---
+
+🧪 Option 1: Blended Chicken Protein Smoothie
+
+(Light, minimal fat, protein-focused)
+
+Remove meat from bones
+
+Blend with:
+
+½ cup of strained broth
+
+Herbs, lemon juice, or apple cider vinegar
+
+Optional: 1 tsp psyllium or chia for fiber
+
+
+Use as a light protein meal to break your fast or support lean mass during retreat prep
+
+
+🧾 Estimate: ~20–25g protein / 7–10g fat / ~0g carbs
+✅ Keeps you in fat-burning
+✅ Easy to digest
+✅ Satisfying without triggering over-eating
+
+
+---
+
+🥣 Option 2: Light Chicken Bowl
+
+(If transitioning back to solids more fully)
+
+Shred the cooked meat
+
+Mix with:
+
+Steamed or raw veggies (onion, cucumber, celery, tomato)
+
+1 tsp olive oil or broth drizzle
+
+Optional herbs (cilantro, basil), splash of vinegar
+
+
+Serve warm or cold in a bowl
+
+
+✅ More satisfying texture
+✅ Better for grounding if feeling depleted
+🧾 Fat content will depend on skin left on/off
+
+
+---
+
+🧘‍♂️ Retreat-Oriented Guidance:
+
+Because this week is about lightness, presence, and preparation:
+
+🟢 Keep broth flowing daily
+
+🟡 Use cooked meat lightly — in smoothies or bowls
+
+🔴 Avoid adding lots of oils, cheese, or heavy meals
+
+
+
+---
+
+✍️ Recommendation for Today:
+
+> Use the chicken wings to make broth now. When ready, taste the broth. If you feel like you need grounding or protein:
+Blend the meat lightly into a “chicken broth smoothie” with herbs and lemon.
+If you need more substance later, move to the bowl version.
+
+
+
+
+---
+
+Would you like me to save this as a new recipe MD file? Something like:
+Fasting/chicken-broth-smoothie.md
+Let me know — or I can just log it as part of today’s ongoing retreat prep.
+
+---
+
