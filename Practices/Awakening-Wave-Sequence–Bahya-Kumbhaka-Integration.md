@@ -20,6 +20,7 @@ Now, intuitively led to bahya kumbhaka (holding after exhale)
 
 This shift brought a profound sense of quiet and grounded clarity
 
+---
 
 Updated Flow Summary:
 
