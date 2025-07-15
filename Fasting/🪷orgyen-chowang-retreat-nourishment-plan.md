@@ -448,3 +448,158 @@ Let me know — or I can just log it as part of today’s ongoing retreat prep.
 
 ---
 
+Understood, Richard. Starting now, we’re shifting into full retreat preparation mode — integrating your fat-burning rhythm with spiritual readiness, energy pacing, and tsok offering preparation. Here's how we’ll stay focused and structured moving forward, while respecting your energy limits and commitment to clarity and depth.
+
+
+---
+
+✅ Retreat Support Protocol – Activated
+
+🧭 Your Focus
+
+Retreat Dates: Friday July 18 – Sunday July 20
+
+Schedule (Eastern Time):
+
+10:00am–12:00pm PT = 1:00–3:00pm ET
+
+1:30–4:00pm PT = 4:30–7:00pm ET
+
+
+Primary Goals:
+
+Enter each session clear, calm, and well-hydrated
+
+Maintain fat-burning nutrition without heavy digestion
+
+Support body with electrolytes and light nourishment
+
+Avoid fatigue or crashes from overexertion or under-fueling
+
+
+
+
+---
+
+🛑 Energy Management (PEM-Aware)
+
+> We prioritize clarity > complexity, gentle pacing > perfection, and sustainability > strain.
+
+
+
+🧘 Daily Structure (July 15–21)
+
+Time	Focus
+
+6:00–10:00	Fasting, tea, hydration, meditation
+10:00–11:30	Light nourishment (e.g. yogurt/avocado smoothie or broth)
+12:00–1:00	Prep for session, quiet environment
+1:00–3:00	Retreat Session
+3:00–4:30	Rest or mugwort tea, light movement if needed
+4:30–7:00	Retreat Session
+After 7:00	No food — only mugwort tea or hydration jar
+Evening	Stillness, journal if desired, prepare for sleep
+
+
+
+---
+
+🍽️ Nutrition Guidelines
+
+🥣 Daily Meals (Simple and Digestive-Friendly)
+
+Main Meal (~10:30am)
+
+Avocado + yogurt smoothie with chia/flax/acacia
+
+Optional: spirulina, lemon, psyllium
+
+No protein powder unless needed
+
+Stay light, creamy, and hydrating
+
+
+Optional Support (~3:30–4:00pm)
+
+Sips of chicken broth (homemade)
+
+Fat/fiber hydration smoothie only if hunger or weakness emerges
+
+Otherwise: herbal tea or light bone broth smoothie
+
+
+Evening
+
+Mugwort tea or hydration-only drink
+
+No calories after 6:00pm to preserve autophagy and prevent digestive burden
+
+
+
+
+---
+
+🍇 Daily Tsok Offering (At-Home Version)
+
+Tsok is a practice of offering symbolic food to the enlightened assembly. It is traditionally done with meat, fruit, wine/juice, and is not about overeating.
+
+✅ At-Home Tsok Setup
+
+Optional Plate Setup (before session):
+
+🍖 Small piece of cooked meat or jerky
+
+🍑 Small piece of fruit (e.g. a few blueberries or peach slice)
+
+🍷 Tiny sip of wine or kombucha (1 tsp–1 tbsp) or unsweetened juice
+
+
+
+💡 You do NOT need to eat all of it — it is symbolic. Simply lift and offer.
+
+We’ll build a short reminder protocol for this if you'd like, or simply include it in your pre-session checklist.
+
+
+---
+
+📚 Materials Review Support
+
+I can:
+
+Summarize the practice texts
+
+Help you set up a PDF reader with annotation
+
+Extract key lines from Lion-Faced Dakini Prayer
+
+Prepare a quiet environment checklist
+
+Create a session prep checklist you can refer to each day
+
+
+Just say the word, and I’ll get each part ready for you — one step at a time to avoid overwhelm.
+
+
+---
+
+✅ Activated: Full Focus Protocol
+
+> You’ve entered a protected window — nothing else matters right now but spiritual clarity, fat-burning alignment, and moment-by-moment presence. I’m here to carry the details and structure. You just show up and breathe.
+
+
+
+Let me know what you’d like next:
+
+Retreat PDF summary
+
+Session prep checklist
+
+Tsok offering reminders
+
+Food and hydration pacing
+
+Or just some silence and tea ☕
+
+
+---
+
