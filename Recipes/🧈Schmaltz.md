@@ -1,4 +1,4 @@
-🧈 Chicken Fat vs. Schmaltz
+## 🧈 Chicken Fat vs. Schmaltz
 
 ---
 ## Plain Chicken Fat (Unrendered)
