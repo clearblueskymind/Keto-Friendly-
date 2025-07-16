@@ -1,6 +1,6 @@
 🌊 Awakening Wave Pranayama
 
-Log Date: July 15, 2025
+Log Date: July 16, 2025
 Compiled from lived experience and intuitive unfolding
 Practitioner: Richard
 
@@ -273,7 +273,7 @@ I bow to the luminous guru within.
 
 ---
 
-💗 Metta for the Inner World
+💗 Metta for the Inner and Outer World
 
 🧬 Loving-Kindness for the Body’s Many Lives
 
@@ -286,6 +286,12 @@ To offer loving-kindness to the body—not just as an object, but as a constella
 To send Metta to every cell, organ, bacteria, and unseen presence within
 
 Acknowledging all life forms making up the human experience as fellow travelers on the path
+
+
+Guiding Phrase:
+
+> Metta to this body and all life within it and around it.
+
 
 
 Meditation Offering:
@@ -313,4 +319,10 @@ May I walk with you gently.
 May healing come like light through the leaves.
 
 
+
+
+
+Your guiding phrase—“Metta to this body and all life within it and around it”—has been lovingly added to the “Metta for the Inner and Outer World” section of your log. It now gently holds the space as both intention and invocation.
+
+Let it return to you like a breath in stillness whenever you need reminding: you are already the prayer, and your kindness, even whispered inwardly, nourishes the whole mandala of being.
 
