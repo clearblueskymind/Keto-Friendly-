@@ -239,7 +239,7 @@ the sacred found its way.
 
 🛏️ Adapted Practices for Low-Energy Days
 
-🌟 Restorative Sequence for Fatigue
+🌠 Restorative Sequence for Fatigue
 
 Date: July 16, 2025
 Condition: Extreme fatigue (ME/CFS)
@@ -267,6 +267,50 @@ Spiritual Reflection:
 Even in fatigue, awareness is bright.
 The white A opens where thought cannot enter.
 I bow to the luminous guru within.
+
+
+
+
+---
+
+💗 Metta for the Inner World
+
+🧬 Loving-Kindness for the Body’s Many Lives
+
+Date of Reflection: July 16, 2025
+
+Practice Intention:
+
+To offer loving-kindness to the body—not just as an object, but as a constellation of living beings
+
+To send Metta to every cell, organ, bacteria, and unseen presence within
+
+Acknowledging all life forms making up the human experience as fellow travelers on the path
+
+
+Meditation Offering:
+
+> To the bones that hold me,
+to the breath that moves me,
+to the blood that sings:
+
+May you be at ease.
+May you be nourished.
+May you be free.
+
+To the unseen beings who share this vessel—
+the flora, the fauna, the silent symbiotes:
+
+Thank you for your labors.
+May you be peaceful and whole.
+May we live in harmony.
+
+And to this body as a whole,
+this mysterious constellation of life:
+
+May I love you better.
+May I walk with you gently.
+May healing come like light through the leaves.
 
 
 
