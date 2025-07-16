@@ -1,7 +1,7 @@
 🧈 Chicken Fat vs. Schmaltz
 
 ---
-###Plain Chicken Fat (Unrendered)
+## Plain Chicken Fat (Unrendered)
 
 Skimmed directly from broth
 
@@ -14,7 +14,7 @@ Can be frozen in cubes for longer storage
 Taste may be slightly gelatinous or poultry-like
 
 ---
-###Rendered Schmaltz (Cooked with Onions)
+## Rendered Schmaltz (Cooked with Onions)
 
 Gently simmer chicken fat with chopped onion until golden
 
