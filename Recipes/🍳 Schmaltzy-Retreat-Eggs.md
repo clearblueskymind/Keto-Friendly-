@@ -2,6 +2,9 @@
 
 A grounding, keto-friendly breakfast — savory and satisfying.
 
+
+---
+
 Ingredients
 
 3 eggs
@@ -14,24 +17,42 @@ Ingredients
 
 Salt & pepper to taste
 
-1 capsule of cayenne 
+1 capsule cayenne (emptied)
 
-¼ cup plain 2% Greek yogurt (served on the side or optional topping)
+¼ cup plain 2% Greek yogurt
 
+
+
+---
 
 Instructions
 
 1. Heat schmaltz and olive oil on low heat in a skillet.
 
 
-2. Add grated onion and cook slowly in chicken fat until softened and fragrant.
+2. Add grated onion and cook slowly in the chicken fat until softened and fragrant.
 
 
-3. In food processor add eggs, yogurt, salt, pepper and cayenne.  blend well.
-
- (sunny-side, scrambled, etc.).
+3. In a food processor, add eggs, yogurt, salt, pepper, and cayenne. Blend well.
 
 
-4. add 1 tbsp olive oil, pour in egg mixture, cook to your desired doneness.
+4. Add 1 tbsp olive oil to the pan, pour in the egg mixture, and cook to your desired doneness.
 
 
+
+
+---
+
+Estimated Nutrition
+
+Calories: ~450 kcal
+
+Fat: ~37g
+
+Protein: ~24g
+
+Net Carbs: ~3g
+
+Fiber: ~0.5g
+
+Total Carbs: ~3.5g
