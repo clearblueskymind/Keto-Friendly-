@@ -38,9 +38,9 @@ Instructions
 
 4. Add 1 tbsp olive oil to the pan, pour in the egg mixture, and cook to your desired doneness.
 
+5. cook very slowly in a covered cast iron pan for 10 minutes.
 
-
-
+6. It's savory, delicious and quite enjoyable. 
 ---
 
 Estimated Nutrition
