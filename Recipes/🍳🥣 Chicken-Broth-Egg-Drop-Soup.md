@@ -32,3 +32,20 @@ Instructions:
 
 4. Simmer for 1–2 more minutes. Serve warm.
 
+---
+
+🍲 Nutrition Estimate (Entire Batch)
+
+Calories: ~280 kcal
+
+Protein: ~28g
+
+Fat: ~17g
+
+Net Carbs: ~3g
+
+Fiber: ~1g
+
+Total Carbs: ~4g
+
+---
