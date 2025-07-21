@@ -234,7 +234,7 @@ Instructions:
 🌅 Early Morning Recovery Meal (No Sugar Spike)
 
 
-Option 1: Simple Yogurt Blend
+## Option 1: Simple Yogurt Blend
 
 ½ cup 2% or whole plain Greek yogurt
 
@@ -249,7 +249,7 @@ Optional: splash of soy or almond milk for texture
 ---
 
 
-☕️ Keto Bomb Drink (Coconut Version)
+## Option 1:  ☕️ Keto Bomb Drink (Coconut Version)
 
 1 tbsp coconut oil
 
@@ -260,5 +260,17 @@ Optional: splash of soy or almond milk for texture
 Dash of cinnamon or turmeric
 
 Optional: pinch of salt or trace minerals
+
+---
+
+## Option 3: A spoonful of coconut oil is:
+
+Gentle on the digestive system
+
+Supports ketone production
+
+Can help calm the nervous system and stabilize energy
+
+No prep required
 
 ---
