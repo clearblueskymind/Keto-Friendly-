@@ -109,4 +109,75 @@ Sleep Routine Adjustments to Trial:
 
 ---
 
+✅ Collagen Powder Recommendation for Sleep & Recovery
+
+1. What to Buy: Look for hydrolyzed collagen peptides (also called collagen hydrolysate). Choose one that is:
+
+Grass-fed and pasture-raised (for quality)
+
+Unflavored (for mixing flexibility)
+
+No additives or sweeteners
+
+Common brands:
+
+Vital Proteins Collagen Peptides
+
+Great Lakes Collagen Hydrolysate
+
+Further Food Collagen (especially if you want a small tub to try)
+
+
+
+
+---
+
+2. How Much to Take:
+
+Start with 10g per night (~1 scoop or 1 tablespoon)
+
+This provides ~3g glycine, which may improve sleep quality and reduce cortisol
+
+You can adjust the amount as needed
+
+
+
+---
+
+3. How to Take It: Collagen dissolves easily in warm or hot liquids. Try:
+
+🫖 Evening Sleep Drink (mix and sip 30–60 min before bed)
+
+10g collagen peptides
+
+1 tsp coconut oil or ghee (optional fat boost)
+
+Dash of cinnamon or turmeric
+
+Herbal tea or warm water (~6–8 oz)
+
+
+Optional:
+
+Add a pinch of sea salt and/or magnesium citrate powder
+
+Add L-theanine (if using) for extra calming support
+
+
+
+---
+
+4. When to Use It:
+
+Night before retreat days to help fall asleep
+
+Post-retreat evening to help calm the nervous system
+
+Middle of the night (if you wake and can’t fall back asleep), try a half portion
+
+
+
+---
+
+Let me know if you’d like a custom version of this for your retreat sleep protocol file or if you want to explore collagen vs glycine powder directly.
 
