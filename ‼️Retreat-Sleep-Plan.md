@@ -181,3 +181,52 @@ Middle of the night (if you wake and can’t fall back asleep), try a half porti
 
 Let me know if you’d like a custom version of this for your retreat sleep protocol file or if you want to explore collagen vs glycine powder directly.
 
+---
+
+To get a full glycine dose (~3,500 mg) from collagen in just 2–3 cubes, we need to increase the amount of collagen in the recipe.
+
+
+---
+
+❄️ Updated Frozen Collagen Gummies (2–3 cubes = full dose)
+
+Yields: ~12 small cubes
+Full dose = 2–3 cubes
+
+Ingredients:
+
+4 tbsp Further Food Grass-Fed Collagen (≈9,500 mg glycine total)
+
+½ cup hot water or herbal tea
+
+1 tbsp coconut cream or MCT oil (optional, for satiety)
+
+1 tsp lemon juice or ACV (optional for gut)
+
+Flavor ideas (optional): cinnamon, vanilla, ginger, turmeric, mint
+
+Sweetener to taste: monk fruit, stevia, etc.
+
+
+
+---
+
+Instructions:
+
+1. Dissolve collagen in hot water or tea.
+
+
+2. Stir in remaining ingredients.
+
+
+3. Pour into silicone ice tray (12 slots).
+
+
+4. Freeze until solid and store in freezer.
+
+
+5. Eat 2–3 cubes nightly (≈3,200–4,800 mg glycine).
+
+
+
+--'
