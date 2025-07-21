@@ -59,3 +59,54 @@ Even if you don’t fall asleep, 30–60 mins of this helps conserve “spoons.�
 
 
 ---
+✅ Here’s your Retreat Sleep Plan Integration Checklist to guide you moving forward:
+
+
+---
+
+🧪 Testing Sleep Support Options (Pre-August Retreat)
+
+Supplements & Ingredients to Explore:
+
+[ ] Glycine (3g before bed – supports sleep and body temp regulation)
+
+[ ] Collagen powder (optional, often includes glycine and helps with tissue repair)
+
+[ ] L-theanine (100–200mg – calming, especially with green tea or before bed)
+
+[ ] Magnesium citrate (you're already taking — increase as needed under guidance)
+
+[ ] Coconut oil or ghee (small fat-based bedtime snack — warmth + satiety)
+
+[ ] Coconut flour + collagen + fat “keto bomb” (custom recipe option)
+
+
+Sleep Routine Adjustments to Trial:
+
+[ ] Light, warm fat-dominant snack after evening retreat session
+
+[ ] Gentle stretches or breathing immediately after evening session
+
+[ ] No screen time 30–45 min before bed
+
+[ ] Microdose protein + fat (if early waking happens again)
+
+
+
+---
+
+📝 Checklist Additions for Future Retreats
+
+[ ] Sleep Plan Activated (Track testing & effects nightly)
+
+[ ] Evening snack logged if taken
+
+[ ] Sleep supplements taken
+
+[ ] Early waking snack option available
+
+
+
+---
+
+
