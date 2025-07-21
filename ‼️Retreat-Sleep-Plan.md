@@ -249,7 +249,7 @@ Optional: splash of soy or almond milk for texture
 ---
 
 
-## Option 1:  ☕️ Keto Bomb Drink (Coconut Version)
+## Option 2:  ☕️ Keto Bomb Drink (Coconut Version)
 
 1 tbsp coconut oil
 
