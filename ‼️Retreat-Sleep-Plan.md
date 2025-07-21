@@ -229,4 +229,36 @@ Instructions:
 
 
 
---'
+---
+
+🌅 Early Morning Recovery Meal (No Sugar Spike)
+
+
+Option 1: Simple Yogurt Blend
+
+½ cup 2% or whole plain Greek yogurt
+
+1 tbsp ground flaxseed or chia
+
+Pinch of salt or cinnamon
+
+Optional: splash of soy or almond milk for texture
+
+
+→ Cool, soothing, fiber-rich, and rich in tryptophan + calcium.
+---
+
+
+☕️ Keto Bomb Drink (Coconut Version)
+
+1 tbsp coconut oil
+
+1 tbsp acacia fiber
+
+1 cup hot water
+
+Dash of cinnamon or turmeric
+
+Optional: pinch of salt or trace minerals
+
+---
