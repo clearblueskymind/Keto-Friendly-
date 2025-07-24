@@ -33,9 +33,9 @@
 
 ---
 
-cultivating—beginning the day with water, minerals, and care. Separating Terramins (your edible clay) into the first quart and the trace minerals into the second can offer subtle yet distinct benefits, especially in the quiet receptivity of a fasting state:
+## Cultivating—beginning the day with water, minerals, and care. Separating Terramins (your edible clay) into the first quart and the trace minerals into the second can offer subtle yet distinct benefits, especially in the quiet receptivity of a fasting state:
 
-First Quart: Terramins
+## First Quart: Terramins
 
 Having the clay first thing in the morning, on an empty stomach, allows it to:
 
@@ -46,7 +46,7 @@ Alkalize and soothe: The clay's natural minerals help alkalize the system and ma
 Ground your energy: Energetically, clay is deeply grounding—like returning to the earth before taking anything else in. For those with ME/CFS, this can feel stabilizing.
 
 
-Second Quart: Trace Minerals
+## Second Quart: Trace Minerals
 
 Following up with trace minerals supports:
 
@@ -57,7 +57,7 @@ Uptake optimization: With the system more open and cleared by the Terramins, you
 Fluid and electrolyte balance: Particularly supportive for ME/CFS, where fluid dysregulation and mineral loss (especially through night sweats or low adrenal tone) can leave you depleted.
 
 
-Together, this sequence echoes the rhythm of release, then receive—a subtle dance of purification and nourishment.
+## Together, this sequence echoes the rhythm of release, then receive—a subtle dance of purification and nourishment.
 
 You might even think of it like the morning ritual of a garden: first, you loosen the soil and pull the weeds (Terramins), then you gently water with nutrient-rich dew (trace minerals). The roots stir, the leaves awaken.
 
