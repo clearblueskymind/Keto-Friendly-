@@ -13,7 +13,7 @@ Upon Waking (~Morning Light)
 
 Filtered water
 
-Added pteramines (polyamine supplement)
+Added teramins (polyamine supplement)
 
 Taken during fasting state
 
