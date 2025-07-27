@@ -27,21 +27,17 @@
 - Serve warm.
 ---
 ## 📊 Updated Nutrition Estimate (Whole Recipe):
-Nutrient
-Amount
-Calories
-~850 kcal
-Protein
-~76g
-Fat
-~43g
-Net Carbs
-~11g
-Fiber
-~14g
 
+- Calories ~850 kcal
+- Protein ~76g
+- Fat ~43g
+- Net Carbs ~11g
+- Fiber ~14g
+
+---
 
 You can retrieve it anytime by saying:
+
 “Show me the chicken liver recipe”
  “Give me my liver and onion recipe with fiber and nutritional yeast”
 Let me know if you’d like a smaller portion version calculated!
