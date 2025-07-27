@@ -13,12 +13,17 @@ Salt and pepper to taste
 Optional: garlic, thyme, paprika
 ---
 ## Instructions:
-Trim and pat dry chicken livers.
-Slice onion and sauté in oil until soft and golden (4–6 minutes).
-Add chicken livers and cook until browned and fully cooked (~7–10 minutes).
-In the last 1–2 minutes of cooking, stir in flaxseed, chia seeds, acacia fiber, and nutritional yeast.
-Mix thoroughly and season to taste.
-Serve warm.
+- Trim and pat dry chicken livers.
+  
+-Slice onion and sauté in oil until soft and golden (4–6 minutes).
+
+- Add chicken livers and cook until browned and fully cooked (~7–10 minutes).
+
+- In the last 1–2 minutes of cooking, stir in flaxseed, chia seeds, acacia fiber, and nutritional yeast.
+
+- Mix thoroughly and season to taste.
+
+- Serve warm.
 ---
 ## 📊 Updated Nutrition Estimate (Whole Recipe):
 Nutrient
