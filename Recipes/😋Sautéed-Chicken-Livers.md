@@ -2,20 +2,21 @@
 
 ---
 ## Ingredients:
-1 lb chicken livers (~450g)
-1 large onion (~150g, ~1 cup sliced)
-2 tbsp avocado oil or olive oil
-1 tbsp ground flaxseed (~7g)
-1 tbsp chia seeds (~12g)
-1 tbsp acacia fiber powder (~5g)
-1 tbsp nutritional yeast (~8g)
-Salt and pepper to taste
-Optional: garlic, thyme, paprika
+
+- 1 lb chicken livers (~450g)
+- 1 large onion (~150g, ~1 cup sliced)
+- 2 tbsp avocado oil or olive oil
+- 1 tbsp ground flaxseed (~7g)
+- 1 tbsp chia seeds (~12g)
+- 1 tbsp acacia fiber powder (~5g)
+- 1 tbsp nutritional yeast (~8g)
+- Salt and pepper to taste
+- Optional: garlic, thyme, paprika
 ---
 ## Instructions:
 - Trim and pat dry chicken livers.
   
--Slice onion and sauté in oil until soft and golden (4–6 minutes).
+- Slice onion and sauté in oil until soft and golden (4–6 minutes).
 
 - Add chicken livers and cook until browned and fully cooked (~7–10 minutes).
 
