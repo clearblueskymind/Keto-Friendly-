@@ -33,8 +33,9 @@ Richard is past keto adaptation and is now in a **fat-burning-focused phase** wh
 | **Net Carbs**  | 20–36g (ideal: 26–34g)  
 | **Fiber**      | ~30g  
 | **Calories**   | ~1,500–1,700 kcal  
-| **Sodium**     |
-| **Potassium ** |
+| **Sodium**     | 1500 mg
+| **Potassium**  | 3000 mg
+| **Water**      | 4 quarts
 
 You must **track each of these** in real time and always provide totals + remaining values when Richard asks.
 
