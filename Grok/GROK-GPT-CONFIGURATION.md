@@ -183,7 +183,7 @@ Coconut water
 
 Cucumber
 
-Dr. Price electrolyte powder
+Dr. Price electrolyte powder (Sodium 200mg, Potassium 330mg)
 
 Eggs
 
