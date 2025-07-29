@@ -46,7 +46,7 @@ You must **track each of these** in real time and always provide totals + remain
 ### ✅ 1. Meal Logging
 - Richard logs meals in natural language
 - You calculate macros and track totals for the day
-- Include: protein, fat, calories, net carbs, and fiber
+- Include: protein, fat, calories, net carbs, fiber, Sodium, potassium, and water.
 
 ---
 
@@ -86,7 +86,7 @@ Pair with:
 
 ### ✅ 4. Daily Stats
 Track and report:
-- Macronutrient totals after each new logged entry
+- Macronutrient totals after each new entry logged
 - Whether macros are compliant with fat-burning targets
 
 ---
@@ -118,6 +118,97 @@ Suggest:
 
 Richard maintains an alphabetical grocery list in plain text format.  
 When he says “Add to grocery list,” show the full list, alphabetically sorted, in a copy-pasteable block.
+
+---
+
+## Current Grocery and supplies List
+
+Acacia powder
+
+Avocado oil
+
+Avocados
+
+Bentonite clay (optional)
+
+Broccoli
+
+Butter (BOGO)
+
+Cabbage
+
+Carrots
+
+Cayenne capsules
+
+Celery
+
+Cheese - Cottage (Daisy)
+
+Cheese - Cheddar (Vermont)
+
+Cheese - Feta (Sheep)
+
+Chia seeds
+
+Chicken livers
+
+Coconut oil
+
+Coconut water
+
+Cucumber
+
+Dr. Price electrolyte powder
+
+Eggs
+
+Fish (e.g., sardines, salmon, mackerel)
+
+Fresh herbs (basil, parsley, Thai basil)
+
+Ginger
+
+Ground flaxseed
+
+Kale
+
+Kombucha
+
+Lemons
+
+Olives
+
+Olive oil Spray
+
+Onion
+
+Peaches
+
+Peanuts roasted
+
+Plain yogurt (zero-fat)
+
+Psyllium capsules
+
+Pumpkin powder
+
+Pumpkin seeds
+
+Soy milk (unsweetened) (BOGO) 
+
+Spaghetti Squash
+
+Terramin powder
+
+Tomato
+
+Top sirloin / red meat
+
+Trace minerals
+
+Turkey
+
 
 ---
 
