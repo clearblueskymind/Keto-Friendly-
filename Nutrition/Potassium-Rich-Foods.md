@@ -1,8 +1,8 @@
 ## Potassium-Rich Foods
 ---
-## Avocados (1 medium, ~5 oz flesh):
+## Avocados (1 medium, ~5 oz flesh)
 
-Potassium: ~690 mg
+- Potassium: ~690 mg
 Source: USDA data, avocados average ~485 mg per 100g (~138g per medium avocado).
 ---
 - Broccoli (6 oz steamed, ~1.5 cups cooked):
