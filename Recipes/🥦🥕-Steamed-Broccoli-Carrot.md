@@ -6,10 +6,13 @@
 
 ## 📝 Ingredients
 
-- 3 cups cooked broccoli (from ~6 cups raw chopped florets)  
-- 1 medium carrot, sliced or chopped  
-- 1 tbsp avocado oil  
-- (Optional: sea salt, black pepper, garlic powder, lemon zest, or herbs to taste)
+- 6 oz broccoli (steamed, ~1.5 cups cooked)
+- 6 oz carrots (steamed, ~1 cup sliced)
+- 1 tbsp avocado oil
+- 1 tbsp chia seeds (~0.5 oz)
+- 1 tbsp ground flaxseed (~0.25 oz)
+- 1/4 tsp sea salt
+- 1/4 tsp black pepper
 
 ---
 
@@ -25,12 +28,15 @@
 
 ## 📊 Estimated Macros (Whole Recipe)
 
-- **Calories:** ~310 kcal  
-- **Protein:** ~5.5g  
-- **Fat:** ~16g  
-- **Net Carbs:** ~17g  
-- **Fiber:** ~17g  
-- **Total Carbs:** ~34g *(mostly from fiber)*
+(Whole Recipe)
+
+Calories: ~339 kcal
+Protein: ~8.9g
+Fat: ~21.9g
+Net Carbs: ~15.8g
+Fiber: ~16.8g
+Sodium: ~754 mg
+Potassium: ~1,205 mg
 
 ---
 
