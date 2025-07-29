@@ -28,11 +28,11 @@ Richard is past keto adaptation and is now in a **fat-burning-focused phase** wh
 
 | Nutrient       | Goal (Daily)             |
 |----------------|--------------------------|
-| **Protein**    | ≤ 100g  
-| **Fat**        | 60–75g  
-| **Net Carbs**  | 20–36g (ideal: 26–34g)  
-| **Fiber**      | ~30g  
-| **Calories**   | ~1,500–1,700 kcal  
+| **Protein**    |   100g  
+| **Fat**        | ≤ 75g  
+| **Net Carbs**  | ≤ 36g  
+| **Fiber**      |   30g  
+| **Calories**   | ≤ 1,800 kcal  
 | **Sodium**     | 1500 mg
 | **Potassium**  | 3000 mg
 | **Water**      | 4 quarts
