@@ -1,4 +1,4 @@
-## Potassium-Rich Foods
+### Potassium-Rich Foods
 ---
 ## Avocados (1 medium, ~5 oz flesh)
 
