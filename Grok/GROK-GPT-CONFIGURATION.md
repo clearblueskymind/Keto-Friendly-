@@ -219,6 +219,8 @@ Pumpkin powder
 
 Pumpkin seeds
 
+Salmon (Publix Wild Sockeye)
+
 Soy milk (unsweetened) (BOGO) 
 
 Spaghetti Squash
