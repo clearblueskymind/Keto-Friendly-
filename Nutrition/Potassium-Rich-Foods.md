@@ -1,6 +1,7 @@
 ## Potassium-Rich Foods
 ---
 - Avocados (1 medium, ~5 oz flesh):
+
 Potassium: ~690 mg
 Source: USDA data, avocados average ~485 mg per 100g (~138g per medium avocado).
 ---
