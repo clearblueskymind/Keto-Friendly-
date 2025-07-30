@@ -8,10 +8,3 @@
 
 ---
 
-Dr. Mercola H2 Molecular Hydrogen tablets (8 ppm hydrogen, 80mg magnesium) may support Richard’s fat-burning keto phase by:
-Antioxidant Support: Hydrogen reduces oxidative stress, potentially aiding energy and recovery, crucial for ME/CFS management.
-Magnesium Boost: 80mg magnesium supports muscle, brain, and cellular health, aligning with keto electrolyte needs.
-Energy Production: Enhances mitochondrial function, supporting fat metabolism.
-Caution: Drink immediately after dissolving; hydrogen dissipates quickly. Consult a physician due to ME/CFS.
-
----
