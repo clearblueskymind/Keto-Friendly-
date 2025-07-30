@@ -17,6 +17,8 @@ A nourishing, protein-rich recipe perfect for gentle digestion and steady energy
 
 1 tablespoon chia seeds
 
+1 tablespoon ground flaxseed
+
 1/4 tsp sea salt
 
 1/4 tsp black pepper
@@ -29,13 +31,15 @@ Avocado oil, for frying (about 1.5 Tbsp total)
 
 🍳 Instructions
 
-1. In a large mixing bowl, combine the canned salmon (flaked), chopped onion, eggs, matzo meal, chia seeds, salt, and pepper.
+Portioning Tip: Use a heaping 1/2 cup measuring cup to divide the mixture into 8 equal patties. This ensures consistent size and even cooking.
+
+1. In a large mixing bowl, combine the canned salmon (flaked), chopped onion, eggs, matzo meal, chia seeds, ground flaxseed, salt, and pepper.
 
 
-2. Mix until well combined. Let sit for 5 minutes to allow the matzo meal and chia seeds to absorb moisture.
+2. Mix until well combined. Let sit for 5–10 minutes to allow the matzo meal, chia, and flaxseed to absorb moisture.
 
 
-3. Form into 8 equal patties.
+3. Form into 8 equal patties. If the mixture feels too wet to shape, sprinkle in a little more matzo meal or flaxseed, a teaspoon at a time.
 
 
 4. Heat a nonstick skillet over medium heat with a portion of the avocado oil.
@@ -55,13 +59,13 @@ Avocado oil, for frying (about 1.5 Tbsp total)
 
 Nutrient	Amount
 
-Calories	~129 kcal
-Protein	~12.3g
-Fat	~5.25g
-Carbs	~7.5g
-Fiber	~1.8g
+Calories	~135 kcal
+Protein	~12.5g
+Fat	~5.8g
+Carbs	~7.6g
+Fiber	~2.3g
 Sodium	~185 mg
-Potassium	~180 mg
+Potassium	~190 mg
 
 
 > Note: Values may vary based on specific salmon brand and oil absorbed during frying.
@@ -73,13 +77,13 @@ Potassium	~180 mg
 
 🌿 Health Benefits
 
-Rich in Omega-3s from salmon, chia seeds, and avocado oil: supports heart, brain, and joint health.
+Rich in Omega-3s from salmon, chia seeds, flaxseed, and avocado oil: supports heart, brain, and joint health.
 
 High Protein content helps maintain muscle and energy levels, especially valuable for those with chronic fatigue.
 
 Matzo Meal offers gentle, easy-to-digest carbohydrates.
 
-Chia Seeds add fiber, omega-3s, and promote digestive wellness.
+Chia & Flaxseed add fiber, omega-3s, and promote digestive wellness.
 
 Onion adds antioxidants and prebiotic fiber.
 
