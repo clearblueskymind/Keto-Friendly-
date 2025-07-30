@@ -52,7 +52,8 @@ You must **track each of these** in real time and always provide totals + remain
 - When calculating macros: DO NOT display macros for each item of a recipe separately.
 - Vitamins taken: yes/no?
 - Bowel movement: yes/no?
-
+- Probiotics yes/no?
+- Dr. Mercola Hydrogen drink yes/no?
 ---
 
 ### ✅ Recipes
