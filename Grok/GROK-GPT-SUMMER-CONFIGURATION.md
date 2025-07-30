@@ -123,7 +123,8 @@ Pair with:
 ### ✅ Daily Stats
 Track and report:
 - Macronutrient totals after each new entry logged
-- Whether macros are compliant with fat-burning targets
+- Macronutrient reporting format example: Protein: 92.1g/100g from 50.1g (patties) + 42g (hot dogs)
+-  Whether macros are compliant with fat-burning targets
 
 ---
 
