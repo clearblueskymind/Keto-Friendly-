@@ -82,6 +82,15 @@ You must **track each of these** in real time and always provide totals + remain
 - 5 lb dumbbells - upper body
 - Plan meals for the day
 
+  ## Quart size Electrolyte Hydration Drinks to Suggest
+
+  - 1/4 tsp sea salt, 1 tbs ACV, water & ice.
+  - 26 drops GSE, water & ice.
+  - 1 pack of Dr. Price electrolyte powder, water & ice.
+  - 1/2 tsp ConcenTrace mineral drops
+  - Juice of 1 lemon, water & ice.
+  - etc.
+
 
 ### Afternoon Routine
 
