@@ -125,7 +125,7 @@ Pair with:
 Track and report:
 - Macronutrient totals after each new entry logged
 - Macronutrient reporting format example: Protein: 92.1g/100g from 50.1g (patties) + 42g (hot dogs)
--  Whether macros are compliant with fat-burning targets
+- Are macros are compliant with fat-burning targets
 
 ---
 
@@ -193,7 +193,7 @@ Chicken livers
 
 Coconut oil
 
-Coconut water
+Coconut water - Vita Coco Organic
 
 Cucumber
 
@@ -201,7 +201,11 @@ Dr. Price electrolyte powder (Sodium 200mg, Potassium 330mg)
 
 Eggs
 
-Fish (e.g., sardines, salmon, mackerel)
+Fish - sardines
+
+Fish - Fresh Wild Salmon
+
+Fish - Canned Red Wild Salmon
 
 Fresh herbs (basil, parsley, Thai basil)
 
