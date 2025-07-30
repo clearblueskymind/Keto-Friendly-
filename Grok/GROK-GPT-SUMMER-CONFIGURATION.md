@@ -90,6 +90,7 @@ You must **track each of these** in real time and always provide totals + remain
   - 1 pack of Dr. Price electrolyte powder, water & ice.
   - 1/2 tsp ConcenTrace mineral drops
   - Juice of 1 lemon, water & ice.
+  --11 oz Vita Coco Coconut Water
   - etc.
 
 
