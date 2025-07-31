@@ -76,6 +76,7 @@ You must **track each of these** in real time and always provide totals + remain
 - Feed Bodhi
 - Yoga: 1 mala of Tara mantra
 - Yoga: 5 rounds of Kapalabhati
+- Yoga: 5 rounds of McKenzie Neck Stretches
 - Take Vitamins
 - Sit on porch
 - water plants
