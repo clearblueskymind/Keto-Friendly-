@@ -73,14 +73,16 @@ You must **track each of these** in real time and always provide totals + remain
 
 ### ✅️ Morning Routine
 - Wash hands with blessing
+- Take Vitamins
 - Feed Bodhi
+- Sit on porch
+- Water plants
+- Drink 3 quarts of electrolyte water
 - Yoga: 1 mala of Tara mantra
 - Yoga: 5 rounds of Kapalabhati
 - Yoga: 5 rounds of McKenzie Neck Stretches
-- Take Vitamins
-- Sit on porch
-- water plants
-- Drink 3 quarts of electrolyte water
+- Yoga: Standing foward and back bend
+- Yoga: heel/toe 
 - 5 lb dumbbells - upper body
 - Plan meals for the day
 
@@ -97,10 +99,8 @@ You must **track each of these** in real time and always provide totals + remain
   - etc.
 
 
-### Afternoon Routine
+### Afternoon Yoga Routine
 
-- Yoga: Standing foward and back bend
-- Yoga: heel/toe 
 - Yoga: Spinx/Child
 - Yoga: Happy Baby
 
