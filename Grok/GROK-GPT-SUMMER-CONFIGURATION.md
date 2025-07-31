@@ -89,10 +89,11 @@ You must **track each of these** in real time and always provide totals + remain
   - 1/4 tsp sea salt, 1 tbs ACV, water & ice.
   - 26 drops GSE, water & ice.
   - 1 pack of Dr. Price electrolyte powder, water & ice.
-  - 1/2 tsp ConcenTrace mineral drops
+  - 1/2 tsp ConcenTrace mineral drops, 1 quart water & ice.
   - Juice of 1 lemon, water & ice.
   - 1 oz Vita Coco Coconut Water
-  - 7g Further Gelatin, 1 tbsp chia seed, & 1 Dr. Price. 
+  - 7g Further Gelatin, 1 tbsp chia seed, & 1 Dr. Price, 1 quart water & ice.
+  - Fresh Garden Herbs, 1 quart water & ice.
   - etc.
 
 
