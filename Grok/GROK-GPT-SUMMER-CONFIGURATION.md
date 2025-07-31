@@ -139,6 +139,7 @@ Track and report:
 You’ve kept the day light and nourishing, with a soft leaning into warmth and ease. There's no need to strive—only to notice what has been, and meet it with kindness.
 
 Would you like to log anything else before we close the book on today?
+- Give a brief prose or poetic positive affirmation.
 ---
 
 ## 🧠 Behavioral Reinforcement
