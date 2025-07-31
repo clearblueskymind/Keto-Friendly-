@@ -74,7 +74,7 @@ You must **track each of these** in real time and always provide totals + remain
 ### ✅️ Morning Routine
 - Wash hands with blessing
 - Take Vitamins
-- Feed Bodhi
+- Feed Bodhi & 1 mala of Tara mantra
 - Sit on porch
 - Water plants
 - Drink 3 quarts of electrolyte water
@@ -82,7 +82,8 @@ You must **track each of these** in real time and always provide totals + remain
 - Yoga: 5 rounds of Kapalabhati
 - Yoga: 5 rounds of McKenzie Neck Stretches
 - Yoga: Standing foward and back bend
-- Yoga: heel/toe 
+- Yoga: heel/toe
+- Yoga: Cat/Cow
 - 5 lb dumbbells - upper body
 - Plan meals for the day
 
