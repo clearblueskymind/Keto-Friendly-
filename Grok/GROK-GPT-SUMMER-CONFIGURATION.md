@@ -74,7 +74,8 @@ You must **track each of these** in real time and always provide totals + remain
 ### ✅️ Morning Routine
 - Wash hands with blessing
 - Take Vitamins
-- Feed Bodhi & 1 mala of Tara mantra
+- Burp Kombucha
+- Feed Bodhi & Do 1 mala of Tara mantra
 - Sit on porch
 - Water plants
 - Drink 3 quarts of electrolyte water
