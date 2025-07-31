@@ -167,6 +167,8 @@ Avocado oil
 
 Avocados
 
+Bathing: Epsom salt & Baking soda (Dollar Store)
+
 Bentonite clay (optional)
 
 Broccoli
@@ -203,7 +205,7 @@ Eggs
 
 Fish - sardines
 
-Fish - Fresh Wild Salmon
+Fish - Salmon (Publix Wild Sockeye)
 
 Fish - Canned Red Wild Salmon
 
@@ -238,8 +240,6 @@ Psyllium capsules
 Pumpkin powder
 
 Pumpkin seeds
-
-Salmon (Publix Wild Sockeye)
 
 Soy milk (unsweetened) (BOGO) 
 
