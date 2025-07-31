@@ -74,8 +74,8 @@ You must **track each of these** in real time and always provide totals + remain
 ### ✅️ Morning Routine
 - Wash hands with blessing
 - Feed Bodhi
-- Yoga:  1 mala of Tara mantra at mirror
-- Yoga: Kapalabhati at mirror
+- Yoga: 1 mala of Tara mantra
+- Yoga: 5 rounds of Kapalabhati
 - Take Vitamins
 - Sit on porch
 - water plants
