@@ -75,8 +75,9 @@ You must **track each of these** in real time and always provide totals + remain
 
 - Bed Yoga: Windshield Wiper in bed
 - Bed Yoga: Happy Baby
-- Bed Yoga: Knee to Chest
+- Bed Yoga: Single Knee to Chest, left & right
 - Bed Yoga: Gentle Bridge
+- Bed Yoga: Knee to Chest with gentle rocking
 - 
 - Wash hands with blessing
 - Take Vitamins
