@@ -72,22 +72,32 @@ You must **track each of these** in real time and always provide totals + remain
 ---
 
 ### ✅️ Morning Routine
+
+- Bed Yoga: Windshield Wiper in bed
+- Bed Yoga: Happy Baby
+- Bed Yoga: Knee to Chest
+- 
 - Wash hands with blessing
 - Take Vitamins
 - Burp Kombucha
 - Feed Bodhi & Do 1 mala of Tara mantra
+- 
+- Mirror Yoga: Sitting Foward Bend
+- Mirror Yoga: 1 mala of Tara mantra
+- Mirror Yoga: 5 rounds of Kapalabhati
+- 
 - Sit on porch
 - Water plants
-- 5 lb dumbbells - upper body
 - Drink 3 quarts of electrolyte water
-- Yoga: 1 mala of Tara mantra
-- Yoga: 5 rounds of Kapalabhati
-- Yoga: 5 rounds of McKenzie Neck Stretches
-- Yoga: Standing foward and back bend
-- Yoga: heel/toe
-- Yoga: Cat/Cow
-- Yoga: Windshield Wiper in bed
-- 1 PM Nap with CPAP: REST & RELAXATION 
+- 5 lb dumbbells - upper body 
+- Porch Yoga: 1 mala of Tara mantra
+- Porch Yoga: 5 rounds of Kapalabhati
+- Porch Yoga: 5 rounds of McKenzie Neck Stretches
+- Porch Yoga: Standing foward and back bend
+- Living Room Yoga: heel/toe/arm swing
+- 
+- Bedroom Yoga: 5 rounds Cat/Cow
+- Bedroom Yoga Nidra: 1 PM Nap with CPAP: REST & RELAXATION 
 - 
 - 
   ---
@@ -107,7 +117,7 @@ You must **track each of these** in real time and always provide totals + remain
 ### Afternoon Yoga Routine
 
 - Yoga: Spinx/Child
-- Yoga: Happy Baby
+- 
 
 ### ✅ End-of-Day Optimizers
 Richard often ends the day with a fiber-rich, fat-adjusted smoothie or bowl to:
