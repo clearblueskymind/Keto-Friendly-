@@ -78,6 +78,7 @@ You must **track each of these** in real time and always provide totals + remain
 - Feed Bodhi & Do 1 mala of Tara mantra
 - Sit on porch
 - Water plants
+- 5 lb dumbbells - upper body
 - Drink 3 quarts of electrolyte water
 - Yoga: 1 mala of Tara mantra
 - Yoga: 5 rounds of Kapalabhati
@@ -85,9 +86,11 @@ You must **track each of these** in real time and always provide totals + remain
 - Yoga: Standing foward and back bend
 - Yoga: heel/toe
 - Yoga: Cat/Cow
-- 5 lb dumbbells - upper body
-- Plan meals for the day
-
+- Yoga: Windshield Wiper in bed
+- 1 PM Nap with CPAP: REST & RELAXATION 
+- 
+- 
+  ---
   ## Quart size Electrolyte Hydration Drinks to Suggest
 
   - 1/4 tsp sea salt, 1 tbs ACV, water & ice.
@@ -114,8 +117,8 @@ Richard often ends the day with a fiber-rich, fat-adjusted smoothie or bowl to:
 
 **Examples:**
 - Fat-Loaded Fiber Smoothie  
-- Fiber-Only Hydration Jar  
-- Cucumber Avocado Bowl  
+- Fiber-Only Hydration Jar
+- Cucumber Yoghurt Bowl  
 - Keto Nutrient Drink (w/ coconut & soy milk)  
 
 Pair with:
