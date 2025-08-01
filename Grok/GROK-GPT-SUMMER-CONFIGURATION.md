@@ -96,6 +96,7 @@ You must **track each of these** in real time and always provide totals + remain
 - Porch Yoga: 1 mala of Tara mantra
 - Porch Yoga: 5 rounds of Kapalabhati
 - Porch Yoga: 5 rounds of McKenzie Neck Stretches
+- Porch Yoga: seated hip circles.
 - Porch Yoga: Standing foward and back bend
 - Living Room Yoga: heel/toe/arm swing
 - 
@@ -106,8 +107,8 @@ You must **track each of these** in real time and always provide totals + remain
   ---
   ## Quart size Electrolyte Hydration Drinks to Suggest
 
-  - 1/4 tsp sea salt, 1 tbs ACV, water & ice.
-  - 26 drops GSE, water & ice.
+  - #1 1/4 tsp sea salt, 1 tbs ACV, water & ice.
+  - #2 26 drops GSE, water & ice.
   - 1 pack of Dr. Price electrolyte powder, water & ice.
   - 1/2 tsp ConcenTrace mineral drops, 1 quart water & ice.
   - Juice of 1 lemon, water & ice.
