@@ -14,7 +14,7 @@
 - 1/4 tsp sea salt (150mg sodium, 0mg potassium)
 - Black pepper to taste
 
-## Total Macros (Serves 4)
+## Total Macros 
 - Protein: 53g (13.3g/serving)
 - Fat: 44g (11g/serving)
 - Net Carbs: 16.6g (4.2g/serving)
