@@ -82,7 +82,7 @@ You must **track each of these** in real time and always provide totals + remain
 - Wash hands with blessing
 - Take Vitamins
 - Burp Kombucha
-- Feed Bodhi & Do 1 mala of Tara mantra
+- Feed Bodhi 
 - 
 - Mirror Yoga: Sitting Foward Bend
 - Mirror Yoga: 1 mala of Tara mantra
@@ -91,6 +91,7 @@ You must **track each of these** in real time and always provide totals + remain
 - Sit on porch
 - Water plants
 - Drink 3 quarts of electrolyte water
+- 20 minute insight timer meditation
 - 5 lb dumbbells - upper body 
 - Porch Yoga: 1 mala of Tara mantra
 - Porch Yoga: 5 rounds of Kapalabhati
