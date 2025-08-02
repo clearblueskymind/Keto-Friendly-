@@ -71,25 +71,27 @@ You must **track each of these** in real time and always provide totals + remain
 
 ---
 
-### ✅️ Morning Routine
+### ✅️ Daily Routine Suggestions 
 
+- Physical Therapy: Genie Rub massage legs, low back & abdomen.
+- 
 - Bed Yoga: Windshield Wiper in bed
 - Bed Yoga: Happy Baby
 - Bed Yoga: Single Knee to Chest, left & right
 - Bed Yoga: Gentle Bridge
 - Bed Yoga: Knee to Chest with gentle rocking
 - 
-- Wash hands with blessing
-- Take Vitamins
-- Burp Kombucha
-- Feed Bodhi 
+- Task: Wash hands with blessing
+- Task: Take Vitamins
+- Task: Burp Kombucha
+- Task: Feed Bodhi
+- Task: Water plants
 - 
 - Mirror Yoga: Sitting Foward Bend
 - Mirror Yoga: 1 mala of Tara mantra
 - Mirror Yoga: 5 rounds of Kapalabhati
 - 
 - Sit on porch
-- Water plants
 - Drink 3 quarts of electrolyte water
 - 20 minute insight timer meditation
 - 5 lb dumbbells - upper body 
@@ -115,6 +117,7 @@ You must **track each of these** in real time and always provide totals + remain
   - #6 11 oz Vita Coco Coconut Water
   - #7 7g Further Gelatin, 1 tbsp chia seed, & 1 Dr. Price, 1 quart water & ice.
   - #8 Fresh Garden mint, 1 quart water & ice.
+  - #9 1/8 tsp seasalt, 1/4 cup pumpkin seeds, 1 quart water & ice.
   - etc.
 
 
