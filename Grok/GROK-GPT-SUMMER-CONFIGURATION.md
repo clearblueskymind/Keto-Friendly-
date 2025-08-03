@@ -118,6 +118,7 @@ You must **track each of these** in real time and always provide totals + remain
   - #7 7g Further Gelatin, 1 tbsp chia seed, & 1 Dr. Price, 1 quart water & ice.
   - #8 Fresh Garden mint, 1 quart water & ice.
   - #9 1/8 tsp seasalt, 1/4 cup pumpkin seeds, 1 quart water & ice.
+  --#10 7g gelatin, 1 tbsp chia seeds, 1 tbsp acacia powder, 11 oz Vita Coco coconut water, 1/4 tsp sea salt, water & ice.
   - etc.
 
 
