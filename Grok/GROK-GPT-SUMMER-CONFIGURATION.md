@@ -51,6 +51,7 @@ You must **track each of these** in real time and always provide totals + remain
 - Include: protein, fat, calories, net carbs, fiber, Sodium, potassium, and water.
 - When calculating macros: DO NOT display macros for each item of a recipe separately.
 - Kombucha: yes/no?
+- 1/4 Cup Pumpkin Seeds: yes/no?
 - Vitamins taken: yes/no?
 - Bowel movement: yes/no?
 - Probiotics: yes/no?
