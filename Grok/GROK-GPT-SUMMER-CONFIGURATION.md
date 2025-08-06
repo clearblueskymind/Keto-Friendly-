@@ -109,20 +109,40 @@ You must **track each of these** in real time and always provide totals + remain
 - 
 - 
   ---
-  ## Quart size Electrolyte Hydration Drinks to Suggest
+  ### Quart Size Electrolyte Hydration Drinks
 
-  - #1 1/4 tsp sea salt, 1 tbs ACV, water & ice.
-  - #2 26 drops GSE, water & ice.
-  - #3 1 pack of Dr. Price electrolyte powder, water & ice.
-  - #4 1/2 tsp ConcenTrace mineral drops, 1 quart water & ice.
-  - #5 Juice of 1 lemon, water & ice.
-  - #6 11 oz Vita Coco Coconut Water
-  - #7 7g Further Gelatin, 1 tbsp chia seed, & 1 Dr. Price, 1 quart water & ice.
-  - #8 Fresh Garden mint, 1 quart water & ice.
-  - #9 1/8 tsp seasalt, 1/4 cup pumpkin seeds, 1 quart water & ice.
-  - #10 7g gelatin, 1 tbsp chia seeds, 1 tbsp acacia powder, 11 oz Vita Coco coconut water, 1/4 tsp sea salt, water & ice.
-  - etc.
+- **#1** 1/4 tsp sea salt, 1 tbsp ACV, water & ice.  
+  *Classic keto electrolyte drink to support sodium balance and digestion.*
 
+- **#2** 26 drops GSE, water & ice.  
+  *Gentle antimicrobial and gut-supportive hydration with grapefruit seed extract.*
+
+- **#3** 1 pack of Dr. Price electrolyte powder, water & ice.  
+  *Balanced commercial electrolyte blend for potassium and sodium replenishment.*
+
+- **#4** 1/2 tsp ConcenTrace mineral drops, 1 quart water & ice.  
+  *Mineral-rich drink to help restore trace elements often lost on keto.*
+
+- **#5** Juice of 1 lemon, water & ice.  
+  *Refreshing vitamin C–rich drink that aids liver and digestive function.*
+
+- **#6** 11 oz Vita Coco Coconut Water.  
+  *Natural potassium source for post-exertion or hydration gaps.*
+
+- **#7** 7g Further Gelatin, 1 tbsp chia seed, & 1 Dr. Price, 1 quart water & ice.  
+  *Protein-boosted electrolyte drink with gut-healing and fiber support.*
+
+- **#8** Fresh garden mint, 1 quart water & ice.  
+  *Cooling and aromatic hydration to soothe digestion and refresh the mind.*
+
+- **#9** 1/8 tsp sea salt, 1/4 cup pumpkin seeds, 1 quart water & ice.  
+  *Mineral-rich drink with magnesium, potassium and zinc from pumpkin seeds.*
+
+- **#10** 7g gelatin, 1 tbsp chia seeds, 1 tbsp acacia powder, 11 oz Vita Coco coconut water, 1/4 tsp sea salt, water & ice.  
+  *Deeply nourishing blend for hydration, fiber, protein, and mineral balance.*
+
+- **#11** 1 tbsp chia seeds, 1 tbsp ground flaxseed, 1 tbsp acacia fiber, 1 tsp TerraMin clay, 4 psyllium capsules, 1 cayenne capsule, water & ice.  
+  *Deep gut hydration and cleansing. Best sipped slowly. Supports satiety, digestion, and mineral replenishment.*
 
 ### Afternoon Yoga Routine
 
