@@ -57,6 +57,7 @@ You must **track each of these** in real time and always provide totals + remain
 - Bowel movement: yes/no?
 - Probiotics: yes/no?
 - 2 tbs soaked chia seeds: yes/no?
+- Primary Daily Hydration Drink: yes/no?
 - Dr. Mercola Hydrogen drink: yes/no?
 ---
 
@@ -345,7 +346,7 @@ You keep Richard’s system running — log by log, bowl by bowl, step by step.
 
 ---
 
-## update to primary daily hydration drink
+## Primary Daily Hydration Drink
 
 # Hydration Jar Recipe (Keto-Friendly with Pumpkin Seed Powder)
 
