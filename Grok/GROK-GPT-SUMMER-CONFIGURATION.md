@@ -348,9 +348,9 @@ You keep Richard’s system running — log by log, bowl by bowl, step by step.
 
 ## Primary Daily Hydration Drink
 
-# Hydration Jar Recipe (Keto-Friendly with Pumpkin Options)
+# Hydration Jar Recipe (Keto-Friendly with Pumpkin Options and Sea Salt)
 
-This Hydration Jar recipe is designed for hydration, mild digestive support, and ketogenic diet compatibility, using high-quality Further Food and Stony Brook WholeHeartedFoods products. Consumed twice daily, it provides optimal doses of chia seeds, acacia fiber, gelatin, and either defatted pumpkin seed powder or raw pumpkin seeds for digestive health, satiety, blood sugar control, joint/skin support, heart health, and electrolyte balance. Cinnamon adds flavor without carbs, and alternating pumpkin options ensures variety while aligning with keto goals and US-grown ingredient preferences.
+This Hydration Jar recipe is designed for hydration, mild digestive support, and ketogenic diet compatibility, using high-quality Further Food and Stony Brook WholeHeartedFoods products. Consumed twice daily, it provides optimal doses of chia seeds, acacia fiber, gelatin, and either defatted pumpkin seed powder or raw pumpkin seeds for digestive health, satiety, blood sugar control, joint/skin support, heart health, and electrolyte balance. Cinnamon and sea salt enhance flavor without carbs, and alternating pumpkin options ensures variety while aligning with keto goals and US-grown ingredient preferences.
 
 ## Recipe (Per Serving)
 - **1 tbsp (~12 g) soaked chia seeds** (Further Food, assumed organic, high-quality)
@@ -360,6 +360,7 @@ This Hydration Jar recipe is designed for hydration, mild digestive support, and
   - **¼ cup (~30 g) defatted pumpkin seed powder** (Stony Brook WholeHeartedFoods, organic, US-grown, post-oil extraction)
   - **¼ cup (~30 g) raw pumpkin seeds** (Stony Brook or similar, organic, US-grown)
 - **¼ tsp ground cinnamon** (Ceylon preferred, ~0.7 g; alternative: ¼ tsp ground cardamom)
+- **¼ tsp sea salt** (~575 mg sodium)
 - **1 quart (946 mL) water**, stirred well and sipped slowly
 
 **Daily Total (2 servings)**:
@@ -368,6 +369,7 @@ This Hydration Jar recipe is designed for hydration, mild digestive support, and
 - 14 g gelatin
 - ½ cup (~60 g) defatted pumpkin seed powder **or** raw pumpkin seeds
 - ½ tsp cinnamon (~1.4 g; or ½ tsp cardamom)
+- ½ tsp sea salt (~1150 mg sodium)
 - 2 quarts (~1.9 L) water
 
 ## Preparation Instructions
@@ -377,13 +379,13 @@ This Hydration Jar recipe is designed for hydration, mild digestive support, and
 4. **Pumpkin Option**: 
    - **Defatted Powder**: Blend or stir ¼ cup (~30 g) Stony Brook defatted pumpkin seed powder thoroughly to avoid grittiness.
    - **Raw Seeds**: Blend ¼ cup (~30 g) raw pumpkin seeds into a fine powder or mix whole for texture, ensuring even distribution.
-5. **Cinnamon**: Add ¼ tsp ground cinnamon (or cardamom) to warm water with gelatin for flavor dispersion. Stir well.
+5. **Cinnamon and Sea Salt**: Add ¼ tsp ground cinnamon (or cardamom) and ¼ tsp sea salt to warm water with gelatin for flavor dispersion. Stir well.
 6. **Consumption**: Prepare two 1-quart servings daily (e.g., morning and afternoon). Sip slowly to maximize hydration. Refrigerate up to 24 hours, stirring if gelatin thickens.
 7. **Tolerability**: Start with one serving/day if new to high fiber, increasing to two over 1–2 weeks to avoid bloating.
 
 ## Macronutrients and Nutritional Profile
 
-### Per Serving (1 quart, with ¼ tsp cinnamon)
+### Per Serving (1 quart, with ¼ tsp cinnamon, ¼ tsp sea salt)
 | Nutrient          | Defatted Pumpkin Powder | Raw Pumpkin Seeds | Notes                                                                 |
 |-------------------|-------------------------|-------------------|----------------------------------------------------------------------|
 | **Calories**      | ~156 kcal              | ~226 kcal        | Powder: ~90 kcal (pumpkin), 60 kcal (chia), 6 kcal (gelatin). Seeds: ~160 kcal (pumpkin). |
@@ -391,9 +393,10 @@ This Hydration Jar recipe is designed for hydration, mild digestive support, and
 | **Fat**           | ~4.5 g                 | ~16 g            | Powder: ~1.5 g (pumpkin, ~0.2 g ALA), 3 g (chia, ~2.5 g ALA). Seeds: ~13 g (pumpkin, ~1.5 g ALA). |
 | **Carbohydrates** | ~9.1 g                 | ~9.1 g           | ~8 g fiber (5 g chia, 3 g acacia), ~1.1 g net carbs (pumpkin, cinnamon). |
 | **Fiber**         | ~8 g                   | ~8 g             | ~5 g (chia, soluble/insoluble), ~3 g (acacia, soluble).              |
+| **Sodium**        | ~575 mg                | ~575 mg          | From ¼ tsp sea salt.                                                 |
 | **Other**         | Calcium (~60 mg), Magnesium (~190 mg), Potassium (~240 mg), Zinc (~2.2 mg), Iron (~2.4 mg) | Similar | From chia, pumpkin.                                                  |
 
-### Daily Total (2 servings, with ½ tsp cinnamon)
+### Daily Total (2 servings, with ½ tsp cinnamon, ½ tsp sea salt)
 | Nutrient          | Defatted Pumpkin Powder | Raw Pumpkin Seeds | Notes                                                                 |
 |-------------------|-------------------------|-------------------|----------------------------------------------------------------------|
 | **Calories**      | ~312 kcal              | ~452 kcal        | Powder: ~180 kcal (pumpkin). Seeds: ~320 kcal (pumpkin). Plus 120 kcal (chia), 12 kcal (gelatin). |
@@ -401,17 +404,18 @@ This Hydration Jar recipe is designed for hydration, mild digestive support, and
 | **Fat**           | ~9 g                   | ~32 g            | Powder: ~3 g (pumpkin, ~0.4 g ALA). Seeds: ~26 g (pumpkin, ~3 g ALA). Plus 6 g (chia, ~5 g ALA). |
 | **Carbohydrates** | ~18.2 g                | ~18.2 g          | ~16 g fiber (10 g chia, 6 g acacia), ~2.2 g net carbs (pumpkin, cinnamon). |
 | **Fiber**         | ~16 g                  | ~16 g            | ~10 g (chia), ~6 g (acacia); ~40–60% daily needs (25–38 g, USDA).    |
-| **Other**         | Calcium (~120 mg), Magnesium (~380 mg), Potassium (~480 mg), Zinc (~4.4 mg), Iron (~4.8 mg) | Similar | From chia, pumpkin.                                                  |
+| **Sodium**        | ~1150 mg               | ~1150 mg         | From ½ tsp sea salt; ~50% daily limit (<2300 mg, CDC).               |
+| **Other**         | Calcium (~120 mg), Magnesium (~380 mg), Potassium (~480 mg), Zinc (~4.4 mg), Iron (~4.8 mg) | Magnesium (~420 mg), Similar | From chia, pumpkin.                                                  |
 
-*Note*: Cardamom has similar negligible macros (~0.1 g carbs, ~1 kcal per ¼ tsp). Pumpkin macros based on USDA data and defatted meal studies ().
+*Note*: Cardamom has similar negligible macros (~0.1 g carbs, ~1 kcal per ¼ tsp). Pumpkin macros based on USDA data and defatted meal studies.
 
 ## Scientific Benefits
-The Hydration Jar, consumed twice daily with Further Food and Stony Brook products, delivers keto-friendly benefits, enhanced by alternating pumpkin options and cinnamon.
+The Hydration Jar, consumed twice daily with Further Food and Stony Brook products, delivers keto-friendly benefits, enhanced by pumpkin options, cinnamon, and sea salt.
 
 ### 1. Hydration
-- **Components**: 2 quarts (~1.9 L) water provides ~60–95% daily fluid needs (2–3 L, NIH). Chia’s gel-forming (absorbs 10–12x weight) and gelatin’s viscosity enhance water retention.
-- **Evidence**: 2016 *Journal of Food Science* notes chia’s hydration potential in athletes.
-- **Benefit**: Robust hydration, supporting ketosis and electrolyte balance, critical for keto.
+- **Components**: 2 quarts (~1.9 L) water provides ~60–95% daily fluid needs (2–3 L, NIH). Chia’s gel-forming (absorbs 10–12x weight), gelatin’s viscosity, and sea salt’s sodium (~1150 mg/day) enhance water retention.
+- **Evidence**: 2016 *Journal of Food Science* notes chia’s hydration potential; sodium aids retention (2019 *Journal of the American College of Nutrition*).
+- **Benefit**: Robust hydration, critical for keto electrolyte balance and preventing keto flu symptoms.
 
 ### 2. Digestive Health
 - **Components**: ~16 g fiber/day (10 g chia, 6 g acacia) promotes bowel regularity and prebiotic effects. Gelatin’s amino acids may support gut lining. Pumpkin (powder/seeds) adds ~6 g fiber.
@@ -423,7 +427,7 @@ The Hydration Jar, consumed twice daily with Further Food and Stony Brook produc
 - **Benefit**: Counters keto’s low-fiber risk, supports gut microbiome and regularity.
 
 ### 3. Satiety and Blood Sugar Control
-- **Components**: ~16 g fiber (chia + acacia), ~36–38 g protein (chia + gelatin + pumpkin), and cinnamon (1.4 g/day) enhance fullness and insulin sensitivity.
+- **Components**: ~16 g fiber (chia + acacia), ~36–38 g protein (chia + gelatin + pumpkin), cinnamon (1.4 g/day), and sea salt enhance fullness and insulin sensitivity.
 - **Evidence**:
   - **Chia**: 15–25 g/day reduces appetite (2014 *Nutrición Hospitalaria*).
   - **Acacia**: 10 g/day improves glycemic control (2016 *American Journal of Clinical Nutrition*).
@@ -440,7 +444,7 @@ The Hydration Jar, consumed twice daily with Further Food and Stony Brook produc
 - **Benefit**: Modest support for joint comfort and skin hydration (8+ weeks).
 
 ### 5. Heart Health
-- **Components**: Chia’s ~5 g ALA, ~10 g fiber, acacia’s ~6 g fiber, and pumpkin’s ALA (~0.4 g powder, ~3 g seeds) support cholesterol reduction. Cinnamon’s antioxidants aid cardiovascular health.
+- **Components**: Chia’s ~5 g ALA, ~10 g fiber, acacia’s ~6 g fiber, and pumpkin’s ALA (~0.4 g powder, ~3 g seeds) support cholesterol reduction. Cinnamon’s antioxidants and sea salt’s electrolyte balance aid cardiovascular health.
 - **Evidence**:
   - **Chia**: 25 g/day lowers LDL (2015 *Journal of the American College of Nutrition*).
   - **Acacia**: 10 g/day improves HDL/LDL ratios (2017 *Lipids in Health and Disease*).
@@ -449,9 +453,9 @@ The Hydration Jar, consumed twice daily with Further Food and Stony Brook produc
 - **Benefit**: Modest cholesterol and heart health support, keto-compatible.
 
 ### 6. Electrolyte Balance
-- **Components**: Pumpkin (~480 mg potassium, ~380–420 mg magnesium/day) and chia (~80 mg magnesium) support electrolyte needs.
-- **Evidence**: Potassium/magnesium aid muscle function and hydration (2019 *Journal of the American College of Nutrition*).
-- **Benefit**: Complements keto’s electrolyte demands, aligning with your interest in potassium supplements.
+- **Components**: Pumpkin (~480 mg potassium, ~380–420 mg magnesium/day), chia (~80 mg magnesium), and sea salt (~1150 mg sodium/day) support electrolyte needs.
+- **Evidence**: Sodium, potassium, magnesium aid muscle function and hydration (2019 *Journal of the American College of Nutrition*).
+- **Benefit**: Complements keto’s high electrolyte demands, aligning with your interest in electrolyte drinks and potassium supplements.
 
 ### Further Food and Stony Brook Advantage
 - **Gelatin**: Further Food Premium Grass-Fed Gelatin Powder is high-quality, third-party tested, non-GMO, pasture-raised bovine, ensuring purity for joint, gut, and skin benefits.
@@ -460,21 +464,22 @@ The Hydration Jar, consumed twice daily with Further Food and Stony Brook produc
 - **Sourcing**: Gelatin (~$49.99/31.74 oz, ~90 servings at 10 g) and pumpkin products at FurtherFood.com, Amazon, Walmart, or StonyBrookWholeHeartedFoods.com.
 
 ## Practical Considerations
-- **Pumpkin Options**: Alternate defatted powder (lower calories, high protein) for weight-conscious days and raw seeds (higher fat, supports ketosis) for energy needs. Both provide nutty flavor, pairing with cinnamon.
-- **Flavor**: Cinnamon (¼ tsp/serving, ~1.4 g/day) adds sweet-spicy warmth. Cardamom (¼ tsp/serving) offers aromatic, citrusy notes. Start with ¼ tsp, increase to ½ tsp for bolder flavor.
-- **Texture**: Blend pumpkin (powder/seeds) for smoothness; raw seeds may add slight crunch if not fully blended.
-- **Tolerability**: ~16 g fiber/day is safe but start with one serving if new to high fiber to avoid bloating. Gelatin (14 g/day) and pumpkin (60 g/day) are well-tolerated.
+- **Pumpkin Options**: Alternate defatted powder (lower calories, high protein) for weight-conscious days and raw seeds (higher fat, supports ketosis) for energy needs. Both provide nutty flavor, enhanced by cinnamon and sea salt.
+- **Flavor**: Cinnamon (¼ tsp/serving, ~1.4 g/day) adds sweet-spicy warmth; sea salt (¼ tsp/serving) enhances nuttiness. Cardamom (¼ tsp/serving) offers aromatic, citrusy notes. Start with ¼ tsp, increase to ½ tsp for bolder flavor.
+- **Texture**: Blend pumpkin (powder/seeds) for smoothness; raw seeds may add crunch if not fully blended.
+- **Tolerability**: ~16 g fiber/day is safe but start with one serving if new to high fiber to avoid bloating. Gelatin (14 g/day), pumpkin (60 g/day), and sodium (~1150 mg/day) are well-tolerated; reduce salt to 1/8 tsp/serving if sodium-sensitive.
 - **Storage**: Prepare fresh or refrigerate up to 24 hours. Stir if gelatin thickens.
-- **Allergies**: Rare for chia, acacia, gelatin, cinnamon, pumpkin; avoid if sensitive to bovine gelatin or seeds.
+- **Allergies**: Rare for chia, acacia, gelatin, cinnamon, pumpkin, salt; avoid if sensitive to bovine gelatin or seeds.
 - **Keto Fit**: ~2.2 g net carbs/day fits your <50 g carb buffer. Monitor calories (~312 kcal powder, ~452 kcal seeds) if weight loss is a goal.
 
 ## Potential Side Effects
 - **Digestive**: Bloating from ~16 g fiber or pumpkin if introduced quickly. Start gradually.
 - **Gelatin**: Low risk with Further Food’s purity; avoid if allergic to bovine sources.
 - **Cinnamon**: Ceylon preferred; cassia’s coumarin may affect liver at high doses (>1 tsp/day).
+- **Sodium**: Monitor if sodium-sensitive (e.g., hypertension); consult doctor if needed.
 - **Calories**: ~312 kcal (powder) or ~452 kcal (seeds)/day; monitor for keto weight goals.
 
 ## Conclusion
-The keto-friendly Hydration Jar with alternating Stony Brook defatted pumpkin seed powder or raw pumpkin seeds, consumed twice daily, delivers hydration, digestive health, satiety, blood sugar control, joint/skin/heart health, and electrolyte support. Cinnamon ensures great taste, and pumpkin options add variety, aligning with your keto diet and US-grown ingredient preference.
+The keto-friendly Hydration Jar with alternating Stony Brook defatted pumpkin seed powder or raw pumpkin seeds, consumed twice daily, delivers hydration, digestive health, satiety, blood sugar control, joint/skin/heart health, and robust electrolyte support. Cinnamon and sea salt ensure great taste, and pumpkin options add variety, aligning with your keto diet and US-grown ingredient preference.
 
 *Generated by Grok 3, built by xAI, on August 08, 2025.*
