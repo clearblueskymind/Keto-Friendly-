@@ -356,6 +356,7 @@ This Hydration Jar recipe is designed for hydration, mild digestive support, and
 - **1 tbsp (~12 g) soaked chia seeds** (Further Food, assumed organic, high-quality)
 - **1 tbsp (~5 g) acacia fiber** (Further Food, assumed high-purity soluble fiber)
 - **1 tbsp flaxseed
+- ** 1 tsp spiralina
 - **7 g gelatin** (Further Food Premium Grass-Fed Gelatin Powder, unflavored, type I & III collagen)
 - **Pumpkin Option (choose one)**:
   - **¼ cup (~30 g) defatted pumpkin seed powder** (Stony Brook WholeHeartedFoods, organic, US-grown, post-oil extraction)
@@ -369,6 +370,7 @@ This Hydration Jar recipe is designed for hydration, mild digestive support, and
 - 2 tbsp (~10 g) acacia fiber
 - 2 tbsp flaxseed
 - 14 g gelatin
+- 2 tsp spiralina
 - ½ cup (~60 g) defatted pumpkin seed powder **or** raw pumpkin seeds
 - ½ tsp cinnamon (~1.4 g; or ½ tsp cardamom)
 - ½ tsp sea salt (~1150 mg sodium)
