@@ -3,12 +3,15 @@
 
 - Medium-sized Haas avocado
 - 5 ounces Fage Greek yogurt
-- 1 tablespoon chia seed
-- 1 tablespoon acacia gum
+- 1 tablespoon chia seeds
+- 1 tablespoon flaxseed
+- 1 tablespoon acacia powder
 - 1/4 teaspoon sea salt
+- 1 cap cayenne
+- 4 caps psyllium
 - 1/4 cup raw pumpkin seeds
 - 1 scoop whey protein powder
-
+- 
 # Nutritional Content
 
 | Nutrient | Quantity |
