@@ -6,10 +6,15 @@ This would allow you to still enjoy the other benefits of your drink without int
 
 
 1 quart water
+
 1 tsp TerraMins
+
 1/4 tsp sea salt
+
 1 small lemon
+
 1 cap cayenne
+
 1 tsp spirulina
 
 This modified version maintains the benefits of the original recipe without the potential drawbacks of the fiber-rich ingredients during your fasting period.
