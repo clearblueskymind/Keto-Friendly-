@@ -193,6 +193,27 @@ You can swap the herbs in any fasting-safe drink for variety and added benefits:
 
 ---
 
+### Seasonal Herb & Veggie Pairing Guide
+
+Use these combinations in fasting-safe drinks to create refreshing, savory, or tonic-style infusions.
+
+| Herb      | Veggie Pairing              | Flavor Profile & Benefits |
+|-----------|-----------------------------|---------------------------|
+| Mint      | Cucumber slices              | Cooling, hydrating, soothing digestion |
+| Mint      | Celery ribbons               | Light, crisp, mineral-rich |
+| Basil     | Cucumber slices              | Sweet, floral, uplifting |
+| Basil     | Shaved zucchini              | Mild, slightly sweet, summery |
+| Oregano   | Tomato water*                | Earthy, savory, immune-supporting |
+| Oregano   | Cucumber ribbons              | Balanced, refreshing, herbal |
+| Rosemary  | Celery ribbons               | Piney, grounding, circulation-boosting |
+| Rosemary  | Bell pepper slivers          | Savory, aromatic, antioxidant-rich |
+| Thyme     | Cucumber slices              | Gentle, calming, subtly herbal |
+| Thyme     | Shaved fennel bulb           | Sweet, anise-like, digestive support |
+
+\*Tomato water = lightly salted crushed tomatoes strained for clear liquid (low-calorie but savory)
+
+---
+
 ### Afternoon Yoga Routine
 
 - Yoga: Spinx/Child
