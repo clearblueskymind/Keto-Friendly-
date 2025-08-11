@@ -177,6 +177,21 @@ This guide sorts hydration recipes by their impact on intermittent fasting and a
 
 ---
 
+## Herbal Infusion Variations
+
+You can swap the herbs in any fasting-safe drink for variety and added benefits:
+
+- **Mint** — cooling, digestive, refreshing.  
+- **Basil** — sweet, floral, uplifting; pairs well with lemon or cucumber.  
+- **Oregano** — earthy, antimicrobial; use sparingly for a medicinal tonic.  
+- **Rosemary** — piney, energizing, and circulation-supporting.  
+- **Thyme** — subtle, calming, with gentle antimicrobial qualities.  
+
+**Blending tip:** Tear or bruise herbs before blending to release aromatic oils.  
+- *Light infusion:* pulse blend, then strain for clear water.  
+- *Full-bodied infusion:* blend fully and keep the pulp for a stronger, nutrient-rich drink.
+
+---
 
 ### Afternoon Yoga Routine
 
