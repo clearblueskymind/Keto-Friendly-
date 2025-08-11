@@ -11,13 +11,15 @@
 
 ** 7 g gelatin (Further Food Premium Grass-Fed Gelatin Powder, unflavored, type I & III collagen)
 
-** Pumpkin meal
-
-¼ cup (~30 g) defatted pumpkin seed powder (Stony Brook WholeHeartedFoods, organic, US-grown, post-oil extraction)
+** Pumpkin meal: ¼ cup (~30 g) defatted pumpkin seed powder (Stony Brook WholeHeartedFoods, organic, US-grown, post-oil extraction)
 
 ** ¼ tsp ground cinnamon (Ceylon preferred.
 
 ** ¼ tsp sea salt (~575 mg sodium)
+
+** 4 psyllium capsules 
+
+** 1 cayenne capsule 
 
 ** 3 cups water,
 
