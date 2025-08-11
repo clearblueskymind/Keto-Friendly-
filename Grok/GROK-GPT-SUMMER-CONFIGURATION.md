@@ -114,38 +114,69 @@ You must **track each of these** in real time and always provide totals + remain
   ---
   ### Quart Size Electrolyte Hydration Drinks
 
+  # Fasting-Friendly Hydration Reference
+
+This guide sorts hydration recipes by their impact on intermittent fasting and autophagy.
+
+---
+
+## Does **NOT** Interfere with Intermittent Fasting
+*(Essentially zero calories; minimal/no protein/fiber; preserves autophagy and fasting benefits)*
+
 - **#1** 1/4 tsp sea salt, 1 tbsp ACV, water & ice.  
-  *Classic keto electrolyte drink to support sodium balance and digestion.*
+  *Classic keto electrolyte drink to support sodium balance and digestion.*  
 
 - **#2** 26 drops GSE, water & ice.  
-  *Gentle antimicrobial and gut-supportive hydration with grapefruit seed extract.*
-
-- **#3** 1 pack of Dr. Price electrolyte powder, water & ice.  
-  *Balanced commercial electrolyte blend for potassium and sodium replenishment.*
+  *Gentle antimicrobial and gut-supportive hydration with grapefruit seed extract.*  
 
 - **#4** 1/2 tsp ConcenTrace mineral drops, 1 quart water & ice.  
-  *Mineral-rich drink to help restore trace elements often lost on keto.*
-
-- **#5** Juice of 1 lemon, water & ice.  
-  *Refreshing vitamin C–rich drink that aids liver and digestive function.*
-
-- **#6** 11 oz Vita Coco Coconut Water.  
-  *Natural potassium source for post-exertion or hydration gaps.*
-
-- **#7** 7g Further Gelatin, 1 tbsp chia seed, & 1 Dr. Price, 1 quart water & ice.  
-  *Protein-boosted electrolyte drink with gut-healing and fiber support.*
+  *Mineral-rich drink to help restore trace elements often lost on keto.*  
 
 - **#8** Fresh garden mint, 1 quart water & ice.  
-  *Cooling and aromatic hydration to soothe digestion and refresh the mind.*
+  *Cooling and aromatic hydration to soothe digestion and refresh the mind.*  
+
+---
+
+## Modified Fasting Safe
+*(Low enough in calories for many to keep light fasting benefits, but may gently stimulate digestion; may slightly reduce autophagy but still supports metabolic goals)*
+
+- **#3** 1 pack of Dr. Price electrolyte powder, water & ice.  
+  *Balanced commercial electrolyte blend for potassium and sodium replenishment.*  
+
+- **#5** Juice of 1 lemon, water & ice.  
+  *Refreshing vitamin C–rich drink that aids liver and digestive function.*  
+
+- **NEW A** *Mint Citrus Mineral Tonic*  
+  1/2 tbsp lemon juice, 1/4 tsp sea salt, 2 drops liquid trace minerals, fresh mint, water & ice.  
+
+- **NEW B** *Cooling Clay Hydrator*  
+  1/2 tsp TerraMin clay, 1/4 tsp sea salt, 1/4 tsp cream of tartar (potassium), water & ice.  
+
+---
+
+## **Does** Interfere with Intermittent Fasting
+*(Enough calories/protein/fiber to break fasting benefits and stimulate digestion)*
+
+- **#6** 11 oz Vita Coco Coconut Water.  
+  *Natural potassium source for post-exertion or hydration gaps.*  
+
+- **#7** 7g Further Gelatin, 1 tbsp chia seed, & 1 Dr. Price, 1 quart water & ice.  
+  *Protein-boosted electrolyte drink with gut-healing and fiber support.*  
 
 - **#9** 1/8 tsp sea salt, 1/4 cup pumpkin seeds, 1 quart water & ice.  
-  *Mineral-rich drink with magnesium, potassium and zinc from pumpkin seeds.*
+  *Mineral-rich drink with magnesium, potassium and zinc from pumpkin seeds.*  
 
 - **#10** 7g gelatin, 1 tbsp chia seeds, 1 tbsp acacia powder, 11 oz Vita Coco coconut water, 1/4 tsp sea salt, water & ice.  
-  *Deeply nourishing blend for hydration, fiber, protein, and mineral balance.*
+  *Deeply nourishing blend for hydration, fiber, protein, and mineral balance.*  
 
 - **#11** 1 tbsp chia seeds, 1 tbsp ground flaxseed, 1 tbsp acacia fiber, 1 tsp TerraMin clay, 4 psyllium capsules, 1 cayenne capsule, water & ice.  
-  *Deep gut hydration and cleansing. Best sipped slowly. Supports satiety, digestion, and mineral replenishment.*
+  *Deep gut hydration and cleansing. Best sipped slowly. Supports satiety, digestion, and mineral replenishment.*  
+
+- **NEW C** *Protein Mineral Cooler*  
+  7g gelatin, 1 tsp ACV, 1/4 tsp sea salt, water & ice.  
+
+---
+
 
 ### Afternoon Yoga Routine
 
