@@ -193,25 +193,24 @@ You can swap the herbs in any fasting-safe drink for variety and added benefits:
 
 ---
 
-### Seasonal Herb & Veggie Pairing Guide
+### Seasonal Herb & Veggie Pairing Guide with Fasting Impact
 
 Use these combinations in fasting-safe drinks to create refreshing, savory, or tonic-style infusions.
 
-| Herb      | Veggie Pairing              | Flavor Profile & Benefits |
-|-----------|-----------------------------|---------------------------|
-| Mint      | Cucumber slices              | Cooling, hydrating, soothing digestion |
-| Mint      | Celery ribbons               | Light, crisp, mineral-rich |
-| Basil     | Cucumber slices              | Sweet, floral, uplifting |
-| Basil     | Shaved zucchini              | Mild, slightly sweet, summery |
-| Oregano   | Tomato water*                | Earthy, savory, immune-supporting |
-| Oregano   | Cucumber ribbons              | Balanced, refreshing, herbal |
-| Rosemary  | Celery ribbons               | Piney, grounding, circulation-boosting |
-| Rosemary  | Bell pepper slivers          | Savory, aromatic, antioxidant-rich |
-| Thyme     | Cucumber slices              | Gentle, calming, subtly herbal |
-| Thyme     | Shaved fennel bulb           | Sweet, anise-like, digestive support |
+| Herb      | Veggie Pairing              | Flavor Profile & Benefits                    | Fasting Impact              |
+|-----------|----------------------------|----------------------------------------------|----------------------------|
+| Mint      | Cucumber slices            | Cooling, hydrating, soothing digestion       | Fully fasting-safe         |
+| Mint      | Celery ribbons             | Light, crisp, mineral-rich                    | Fully fasting-safe         |
+| Basil     | Cucumber slices            | Sweet, floral, uplifting                       | Fully fasting-safe         |
+| Basil     | Shaved zucchini            | Mild, slightly sweet, summery                  | Fully fasting-safe         |
+| Oregano   | Tomato water*              | Earthy, savory, immune-supporting              | Modified fasting (low cal) |
+| Oregano   | Cucumber ribbons           | Balanced, refreshing, herbal                    | Fully fasting-safe         |
+| Rosemary  | Celery ribbons             | Piney, grounding, circulation-boosting         | Fully fasting-safe         |
+| Rosemary  | Bell pepper slivers        | Savory, aromatic, antioxidant-rich             | Modified fasting (low cal) |
+| Thyme     | Cucumber slices            | Gentle, calming, subtly herbal                   | Fully fasting-safe         |
+| Thyme     | Shaved fennel bulb         | Sweet, anise-like, digestive support            | Modified fasting (low cal) |
 
 \*Tomato water = lightly salted crushed tomatoes strained for clear liquid (low-calorie but savory)
-
 ---
 
 ### Afternoon Yoga Routine
