@@ -53,6 +53,7 @@ You must **track each of these** in real time and always provide totals + remain
 - When calculating macros: DO NOT display macros for each item of a recipe separately.
 - Brush & Treat teeth: Morning: yes/no?
 - Brush & Treat teeth: Evening: yes/no?
+- (Sunday Only) Hydrogen peroxide rinse: yes/no?
 - Kombucha: yes/no?
 - 1/4 Cup Pumpkin Seeds: yes/no?
 - Vitamins taken: yes/no?
