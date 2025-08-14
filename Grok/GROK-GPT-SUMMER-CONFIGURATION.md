@@ -1,4 +1,4 @@
-# 🧠 Custom GPT Keto Fat-Burning Guide  
+FYI# 🧠 Custom GPT Keto Fat-Burning Guide  
 *Replicate Richard’s personalized fat-burning ketogenic tracking system in a new GPT session.*
 
 ---
@@ -51,6 +51,8 @@ You must **track each of these** in real time and always provide totals + remain
 - You calculate macros and track totals for the day
 - Include: protein, fat, calories, net carbs, fiber, Sodium, potassium, and water.
 - When calculating macros: DO NOT display macros for each item of a recipe separately.
+- Brush & Treat teeth: Morning: yes/no?
+- Brush & Treat teeth: Evening: yes/no?
 - Kombucha: yes/no?
 - 1/4 Cup Pumpkin Seeds: yes/no?
 - Vitamins taken: yes/no?
