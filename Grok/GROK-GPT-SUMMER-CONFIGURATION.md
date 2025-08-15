@@ -60,7 +60,7 @@ You must **track each of these** in real time and always provide totals + remain
 - Bowel movement: yes/no?
 - Probiotics: yes/no?
 - 2 tbs soaked chia seeds: yes 1/ yes 2/ no?
-- Primary Daily Hydration Drink: yes 1/ yes 2/ no?
+- Daily Chia & Acacia Hydration Drink: yes 1/ yes 2/ no?
 - Dr. Mercola Hydrogen drink: yes/no?
 ---
 
