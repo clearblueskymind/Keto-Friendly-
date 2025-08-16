@@ -158,9 +158,18 @@ This guide sorts hydration recipes by their impact on intermittent fasting and a
   1/2 tsp TerraMin clay, 1/4 tsp sea salt, 1/4 tsp cream of tartar (potassium), water & ice.  
 
 ---
-
-## **Does** Interfere with Intermittent Fasting
+## Hydration Fiber Drinks to Break a Fast
+**Does** Interfere with Intermittent Fasting
 *(Enough calories/protein/fiber to break fasting benefits and stimulate digestion)*
+
+## #12 Hydration Fiber Drinks to Break a Fast
+- 1 tbsp soaked chia seeds (~12g)
+- 1 tbsp acacia fiber powder (~5g)
+- 5 psyllium husk capsules (~2.5g)
+- 1 cayenne capsule
+- 7g gelatin (Further Food Premium Grass-Fed)
+- 1 medium lemon, whole minus skin (~50g)
+- 1/4 cup pumpkin seed protein meal.
 
 - **#6** 11 oz Vita Coco Coconut Water.  
   *Natural potassium source for post-exertion or hydration gaps.*  
@@ -177,17 +186,6 @@ This guide sorts hydration recipes by their impact on intermittent fasting and a
 - **#11** 1 tbsp chia seeds, 1 tbsp ground flaxseed, 1 tbsp acacia fiber, 1 tsp TerraMin clay, 4 psyllium capsules, 1 cayenne capsule, water & ice.  
   *Deep gut hydration and cleansing. Best sipped slowly. Supports satiety, digestion, and mineral replenishment.*
   
----
-## Hydration Fiber Drinks to Break a Fast
-
-## #12 Hydration Fiber Drinks to Break a Fast
-- 1 tbsp soaked chia seeds (~12g)
-- 1 tbsp acacia fiber powder (~5g)
-- 5 psyllium husk capsules (~2.5g)
-- 1 cayenne capsule
-- 7g gelatin (Further Food Premium Grass-Fed)
-- 1 medium lemon, whole minus skin (~50g)
-- 1/4 cup pumpkin seed protein meal
   
 - **NEW C** *Protein Mineral Cooler*  
   7g gelatin, 1 tsp ACV, 1/4 tsp sea salt, water & ice.  
