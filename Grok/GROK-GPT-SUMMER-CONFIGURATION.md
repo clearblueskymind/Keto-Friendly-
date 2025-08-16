@@ -122,7 +122,21 @@ You must **track each of these** in real time and always provide totals + remain
 This guide sorts hydration recipes by their impact on intermittent fasting and autophagy.
 
 ---
+## Hydration Fiber Drinks to Break a Fast
 
+## #1 Hydration Fiber Drinks to Break a Fast
+
+- 1 tbsp soaked chia seeds (~12g)
+- 1 tbsp acacia fiber powder (~5g)
+- 5 psyllium husk capsules (~2.5g)
+- 1 cayenne capsule
+- 7g gelatin (Further Food Premium Grass-Fed)
+- 1 medium lemon, whole minus skin (~50g)
+- 1/4 cup pumpkin seed protein meal
+  
+  ---
+
+  
 ## Does **NOT** Interfere with Intermittent Fasting
 *(Essentially zero calories; minimal/no protein/fiber; preserves autophagy and fasting benefits)*
 
