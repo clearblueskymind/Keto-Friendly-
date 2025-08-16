@@ -163,13 +163,15 @@ This guide sorts hydration recipes by their impact on intermittent fasting and a
 *(Enough calories/protein/fiber to break fasting benefits and stimulate digestion)*
 
 ## #12 Hydration Fiber Drinks to Break a Fast
+
 - 1 tbsp soaked chia seeds (~12g)
 - 1 tbsp acacia fiber powder (~5g)
 - 5 psyllium husk capsules (~2.5g)
 - 1 cayenne capsule
+- 1 magnesium citrate capsule
 - 7g gelatin (Further Food Premium Grass-Fed)
 - 1 medium lemon, whole minus skin (~50g)
-- 1/4 cup pumpkin seed protein meal.
+- (Optional) 1/4 cup pumpkin seed protein meal.
 
 - **#6** 11 oz Vita Coco Coconut Water.  
   *Natural potassium source for post-exertion or hydration gaps.*  
