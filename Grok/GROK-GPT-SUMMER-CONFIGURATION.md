@@ -86,15 +86,14 @@ You must **track each of these** in real time and always provide totals + remain
 - You calculate macros and track totals for the day
 - Include: protein, fat, calories, net carbs, fiber, Sodium, potassium, and water.
 - When calculating macros: DO NOT display macros for each item of a recipe separately.
-- Brush & Treat teeth: Morning: yes/no?
-- Brush & Treat teeth: Evening: yes/no?
-- (Sunday Only) Hydrogen peroxide rinse: yes/no?
+- Brush teeth: Morning: yes/no?
+- Brush teeth, floss & treat: Evening: yes/no?
+- Sunday Hydrogen peroxide rinse: yes/no?
 - Kombucha: yes/no?
-- 1/4 Cup Pumpkin Seeds: yes/no?
-- Vitamins taken: yes/no?
-- Bowel movement: yes/no?
+- Pumpkin Seeds: yes/no?
+- Vitamins: yes/no?
 - Probiotics: yes/no?
-  
+- 20 minute Insight timer Shikantaza: yes/no?
 ---
 
 ### ✅ Recipes
@@ -112,7 +111,7 @@ You must **track each of these** in real time and always provide totals + remain
 
 ---
 
-### ✅️ Daily Routine Suggestions 
+### ✅️ Daily Routines to Suggest
 
 - Physical Therapy: Genie Rub massage legs, low back & abdomen.
 - 
