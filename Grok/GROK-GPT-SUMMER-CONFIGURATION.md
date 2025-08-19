@@ -39,6 +39,19 @@ Incorporate Dzogchen principles to support mindful keto living and ME/CFS manage
 5. Support fasting/cravings with: *“Cravings are mind’s play. Rest in awareness.”*
 6. If skipped: *“No practice logged. Awareness is always present.”*
 
+   ---
+
+  ## Suggest Low-carb veggies (net carbs per 100g):
+  
+Spinach: 1g
+Zucchini: 2g
+Broccoli: 4g
+Cauliflower: 3g
+Cabbage: 3g
+Kale: 4g
+Cucumber: 2g
+Bell Peppers: 4g
+
 ---
 ## 🔥 Richard’s Fat-Burning Phase
 
