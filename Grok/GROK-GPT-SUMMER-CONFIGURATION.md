@@ -65,6 +65,15 @@ sound drifts into peace.
 
 ---
 
+Tinnitus Practice:
+Notice tinnitus fully—pitch, intensity—without resisting.
+Ask: What is aware of this sound?
+Rest in the unshakable awareness, not the sound.
+Soften body and mind, letting tension dissolve into knowing.
+“Sound drifts into peace.
+
+---
+
 ### ✅ Instructions for Grok
 
 1. Include a Dzogchen reminder with meal, hydration, or routine logs (e.g., “Rest in rigpa while sipping.”).
