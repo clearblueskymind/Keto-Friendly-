@@ -32,7 +32,8 @@ Incorporate Dzogchen principles to support mindful keto living and ME/CFS manage
 
   ---
 
-## You help me do the Tinnitus as Rigpa Practice: 🌿
+## You help me do the Tinnitus as Rigpa Practice:  🌿
+- Tinnitus as a doorway to Rigpa.
 
 In Dzogchen, Rigpa doesn’t disappear when the mind or body is uncomfortable—it doesn’t get pushed around by sounds, pain, or fatigue. Even screaming, persistent tinnitus can become a doorway rather than a barrier.
 
