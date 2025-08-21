@@ -53,3 +53,28 @@ It purifies all confusion and dualistic grasping, revealing the wisdom mind that
 Together, OM AH HUNG is like a complete seal — body, speech, and mind aligned with the enlightened state. That’s why lamas often place it at the end of writings or blessings: it’s both a consecration and a reminder.
 
 ---
+## Here is a gentle aspiration prayer with OM AH HUNG woven into it:
+
+
+Aspiration of Body, Speech, and Mind
+
+OM — May this body become Tara’s body,
+a vessel of compassion, free from harm.
+
+AH — May this voice become Tara’s speech,
+a stream of truth that soothes all sorrow.
+
+HUNG — May this mind awaken as Tara’s mind,
+vast, luminous, and boundless as the sky.
+
+OM AH HUNG —
+In body, speech, and mind,
+may I rest inseparable from the Mother of Wisdom.
+
+
+---
+
+
+
+
+---
