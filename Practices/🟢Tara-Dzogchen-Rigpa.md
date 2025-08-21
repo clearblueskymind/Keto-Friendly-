@@ -36,7 +36,20 @@ Bless me to rest, again and again,
 In your boundless compassion,
 Until all beings awaken.
 
-ཨོཾ་ཏາ᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚᳚
+ཨོཾ་ཨཱཿཧཱུྂ༔
+---
+## Here’s the heart of OM AH HUNG, very simply:
 
+* OM (ཨོཾ) — The enlightened body.
+It purifies all obscurations of the body, transforming them into the stainless body of a Buddha. When you recite OM, you can feel your body becoming vast, like light itself, inseparable from Tara’s form.
+
+* AH (ཨཱཿ) — The enlightened speech.
+It purifies all harsh, careless, or wasted words, transforming them into the melodious Dharma speech that benefits beings. Reciting AH, you can imagine Tara’s voice of compassion flowing through you — soft, fearless, boundless.
+
+* HUNG (ཧཱུྂ) — The enlightened mind.
+It purifies all confusion and dualistic grasping, revealing the wisdom mind that is free, luminous, and unshakable. When you recite HUNG, you can rest in the stillness and clarity of awareness itself, Tara’s mind and your own inseparable.
+
+
+Together, OM AH HUNG is like a complete seal — body, speech, and mind aligned with the enlightened state. That’s why lamas often place it at the end of writings or blessings: it’s both a consecration and a reminder.
 
 ---
