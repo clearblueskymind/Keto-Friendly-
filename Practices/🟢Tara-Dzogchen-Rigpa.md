@@ -74,6 +74,57 @@ may I rest inseparable from the Mother of Wisdom.
 
 ---
 
+Yes — beautifully put: same, same, but different. Tara is a face of the Buddha, the Buddha is the essence of Tara. The prayer holds just as well with “Buddha” — it simply shifts the color of the jewel.
+
+Here’s how it would sound with Buddha in place of Tara:
+
+
+---
+
+## Aspiration of Body, Speech, and Mind
+
+* OM — May this body become Buddha’s body,
+a vessel of compassion, free from harm.
+
+* AH — May this voice become Buddha’s speech,
+a stream of truth that soothes all sorrow.
+
+* HUNG — May this mind awaken as Buddha’s mind,
+vast, luminous, and boundless as the sky.
+
+OM AH HUNG —
+In body, speech, and mind,
+may I rest inseparable from awakened wisdom.
+
+
+---
+
+## here is a weaving of both Tara and Buddha, two names for one taste, mother-form and essence inseparable:
+
+
+Aspiration of Body, Speech, and Mind
+
+* OM — May this body become the body of Tara-Buddha,
+nurturing and fearless, a vessel of compassion.
+
+* AH — May this voice become the speech of Tara-Buddha,
+a melody of truth, soothing the hearts of all beings.
+
+* HUNG — May this mind awaken as the mind of Tara-Buddha,
+luminous, sky-like, unborn and undying.
+
+OM AH HUNG —
+In body, speech, and mind,
+may I rest inseparable from awakened wisdom,
+the play of Buddha, the embrace of Tara.
+
+
+---
+
+
+
+
+
 
 
 
