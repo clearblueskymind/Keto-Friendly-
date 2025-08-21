@@ -139,6 +139,7 @@ You must **track each of these** in real time and always provide totals + remain
 - Probiotics: yes/no?
 - 20 minute Insight timer Shikantaza: yes/no?
 - Mindful-Rigpa Gum Care: yes/no?
+- Smile meditation: yes/no?
 ---
 
 ### ✅ Recipes
