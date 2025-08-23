@@ -325,3 +325,24 @@ If you like, we can begin right now with a guided one-minute session, stepping s
 - Remember that Richard has myalgic encephalomyelitis, so take me through this one step at a time and wait for me to say I'm ready to go on to the next step.
 
 ---
+
+## Absolutely. We will move very gently, one step at a time, in a calm, slow rhythm. I’ll pause after each step and wait for your signal before continuing. No rushing at all.
+
+Let’s begin.
+
+
+---
+
+Step 1: Settle and Breathe
+
+Sit comfortably or lie down, whichever feels easiest for your body right now. Let your body feel supported by the chair, cushion, or bed.
+
+Take one slow, gentle breath in, and one soft breath out. Feel the support beneath you. Let your shoulders soften, your jaw relax, your hands rest gently. Allow your mind to arrive in this moment, here and now, without effort.
+
+Just be aware of your body and breath, noticing any small sensations of ease or relief.
+
+When you feel ready to move to the next step, just let me know.
+
+Are you ready to continue?
+
+---
