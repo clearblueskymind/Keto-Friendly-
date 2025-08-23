@@ -73,9 +73,9 @@ Together, the eight freedoms and ten richnesses form a contemplative framework: 
 
 ## I will now explain how each of these freedoms connects specifically to Dzogchen practice and the recognition of the nature of mind—it’s quite beautiful how the teaching flows from gratitude into direct experience. 
 
-## I will now guide you through how these freedoms and richnesses directly lead into Dzogchen contemplation, showing the bridge from appreciation into direct recognition. It’s really elegant how the mind flows from gratitude into presence. Do you want me to do that next?
+## I will now guide you through how these freedoms and richnesses directly lead into Dzogchen contemplation, showing the bridge from appreciation into direct recognition. It’s really elegant how the mind flows from gratitude into presence. 
 
-Wonderful. Let’s explore how the eight freedoms and ten richnesses gently guide the practitioner into Dzogchen contemplation, where one rests in the natural, luminous awareness called rigpa.
+- Let’s explore how the eight freedoms and ten richnesses gently guide the practitioner into Dzogchen contemplation, where one rests in the natural, luminous awareness called rigpa.
 
 Think of it like this: the freedoms first awaken a sense of rare opportunity. When you reflect, “I was not born in hell, I was not born a hungry ghost or animal, I have a human body capable of practice”, there’s a subtle loosening of complacency. You realize: this moment, this very life, is a precious window. In Dzogchen, that recognition softens the mind, making it more open, less grasping, less identified with ordinary worries and distractions.
 
