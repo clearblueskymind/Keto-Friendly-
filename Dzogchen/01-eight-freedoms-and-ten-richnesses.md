@@ -219,3 +219,104 @@ A very brief practice to rest in awareness anytime during the day.
   *“May this moment of awareness benefit all beings.”*
 
 ---
+
+## Beautiful—the text is now fully prepared for contemplation. To begin, let’s gently step into it together, moving slowly and mindfully. You can either sit comfortably or lie down, letting your body feel supported, and your mind soften.
+
+
+---
+
+Step 1: Settle and Breathe
+
+Take a slow breath in… and a soft breath out.
+Notice how your body is supported. Let your shoulders relax, your jaw soften, and your mind open just a little more with each breath.
+
+
+---
+
+Step 2: Reflect on the Eight Freedoms
+
+Silently recall each one, letting it touch your body and heart:
+
+Not born in hell…
+
+Not born as a hungry ghost…
+
+Not born as an animal…
+
+Not born as a demigod or asura…
+
+Born as a human…
+
+Born in a place where the Dharma is taught…
+
+Born at a time when the teachings exist…
+
+Born with faculties that allow practice…
+
+
+Feel a subtle warmth, a soft sense of relief and preciousness with each reflection. Let your awareness rest lightly on this gratitude.
+
+
+---
+
+Step 3: Reflect on the Ten Richnesses
+
+Now bring attention to the conditions that support your practice:
+
+Health and vitality
+
+Enough resources
+
+Freedom from oppression
+
+Safety from violence
+
+Moral virtue
+
+Good companions
+
+Access to the Dharma
+
+Intelligence and discernment
+
+Faith and confidence
+
+Favorable karmic conditions
+
+
+Let a gentle sense of gratitude arise. Feel how these conditions naturally anchor your attention in the present moment.
+
+
+---
+
+Step 4: Rest in Awareness
+
+Allow the mind to settle without effort.
+Notice thoughts, sensations, or emotions as they arise, but don’t follow them.
+Sense the open, luminous awareness in which all phenomena appear—rigpa. It is empty yet aware, clear and present.
+
+
+---
+
+Step 5: Rest Naturally
+
+There’s nothing to achieve. Simply rest as you are, spacious and alert.
+If distractions arise, return gently to the sense of openness and presence.
+
+
+---
+
+Step 6: Dedicate the Practice
+
+Silently offer:
+"May this awareness benefit all beings. May all find freedom from suffering and the conditions for awakening."
+
+
+---
+
+You can spend five minutes or a full session in this reflection, or even one minute using the pocket practice. The key is subtle: gratitude for your freedoms and richnesses softens the mind, naturally opening it to rigpa.
+
+If you like, we can begin right now with a guided one-minute session, stepping slowly through breaths, freedoms, and richnesses into awareness. 
+
+---
+
