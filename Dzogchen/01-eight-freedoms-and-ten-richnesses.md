@@ -125,3 +125,97 @@ The subtlety here is that gratitude and recognition of conditions are themselves
 
 ---
 
+# 5-Minute Dzogchen Contemplative Practice
+
+A brief daily practice to rest in the natural, luminous awareness (rigpa) by reflecting on the eight freedoms and ten richnesses.
+
+---
+
+## 1. Settle the Body and Mind
+- Sit comfortably or lie down.  
+- Take 2–3 slow, gentle breaths.  
+- Feel the body supported and the mind softening.
+
+---
+
+## 2. Quick Reflection on the Eight Freedoms
+Silently recall each freedom, letting a sense of gratitude arise:
+
+- Not born in hell  
+- Not born as a hungry ghost  
+- Not born as an animal  
+- Not born as a demigod or asura  
+- Born as a human  
+- Born in a place where the Dharma is taught  
+- Born at a time when the teachings exist  
+- Born with faculties that allow practice
+
+Pause briefly after each, noticing warmth or openness in your body.
+
+---
+
+## 3. Quick Reflection on the Ten Richnesses
+Briefly acknowledge each supportive condition:
+
+- Health and vitality  
+- Enough resources  
+- Freedom from oppression  
+- Safety from violence  
+- Moral virtue  
+- Good companions  
+- Access to the Dharma  
+- Intelligence and discernment  
+- Faith and confidence  
+- Favorable karmic conditions
+
+Feel gratitude for these conditions. Let this gratitude anchor your attention.
+
+---
+
+## 4. Rest in Awareness
+- Allow the mind to settle naturally.  
+- Notice thoughts, sensations, and emotions without following them.  
+- Sense the open, luminous awareness itself—**rigpa**.  
+
+---
+
+## 5. Short Dedication
+Silently dedicate:  
+*"May this awareness benefit all beings. May all find freedom from suffering and the conditions for awakening."*
+
+---
+
+**Tip:** This can be done in 5 minutes or less. Even brief recognition of freedoms and richnesses softens the mind and opens a doorway to natural awareness.
+
+---
+
+# One-Minute Dzogchen Pocket Practice
+
+A very brief practice to rest in awareness anytime during the day.
+
+---
+
+## 1. Breathe and Settle
+- Take 1–2 slow, gentle breaths.  
+- Feel the body supported and the mind softening.
+
+---
+
+## 2. Recall Freedoms and Richnesses
+- Silently acknowledge:  
+  *“I am human, not born in hell or as a hungry ghost; I have health, access to teachings, and supportive conditions for practice.”*  
+- Let a spark of gratitude arise.
+
+---
+
+## 3. Rest in Awareness
+- Notice thoughts, sensations, and emotions without following them.  
+- Sense the open, luminous awareness itself—**rigpa**.  
+
+---
+
+## 4. Optional Dedication
+- Silently offer:  
+  *“May this moment of awareness benefit all beings.”*
+
+---
