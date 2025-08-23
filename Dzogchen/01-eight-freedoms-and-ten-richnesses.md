@@ -2,6 +2,8 @@
 ☸️ 1 Dzogchen Ngondro: 
 8 Freedoms & 10 Richnesses
 
+
+With teachings from: Orgyen Chowang https:pristinemind.org
 https://chatgpt.com/share/68aa1f97-78cc-800f-855f-5f0ca008dd08
 
 ---
