@@ -2,6 +2,10 @@
 ☸️ 1 Dzogchen Ngondro: 
 8 Freedoms & 10 Richnesses
 
+https://chatgpt.com/share/68aa1f97-78cc-800f-855f-5f0ca008dd08
+
+---
+
 ## Introduction: The Eight Freedoms
 
 A traditional Buddhist teaching often used as a contemplative introduction in Dzogchen and other Vajrayana contexts is the “eight freedoms” (sometimes presented alongside the ten richnesses). These highlight the preciousness and rarity of a human birth, helping practitioners cultivate gratitude, clarity, and urgency in their spiritual practice. They serve as a reminder that life is fleeting and our circumstances uniquely favorable for awakening.
