@@ -320,3 +320,8 @@ If you like, we can begin right now with a guided one-minute session, stepping s
 
 ---
 
+## Note to GPT model:
+
+- Remember that Richard has myalgic encephalomyelitis, so take me through this one step at a time and wait for me to say I'm ready to go on to the next step.
+
+---
