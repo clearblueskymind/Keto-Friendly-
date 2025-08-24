@@ -6,6 +6,15 @@
 With teachings from: Orgyen Chowang 
 
 * Prerequisites: https://pristinemind.secure.retreat.guru/wp-content/uploads/sites/47/2025/08/Ngondro-Accumulation-Request-Summary.pdf
+* Ngondro Retreat Part 1:
+URL:https://pristinemind.org/ngondro-retreat-part-1/
+
+Password (Case Sensitive): Ngondro
+
+* Ngondro Retreat Part 2:
+URL:https://pristinemind.org/ngondro-retreat-part-2/
+
+Password (Case Sensitive): Ngondro
 
 * https://pristinemind.org
   
