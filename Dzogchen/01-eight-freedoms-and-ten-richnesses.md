@@ -9,12 +9,12 @@ With teachings from: Orgyen Chowang
 * Ngondro Retreat Part 1:
 URL:https://pristinemind.org/ngondro-retreat-part-1/
 
-Password (Case Sensitive): Ngondro
+Password (Case Sensitive): Ngo....
 
 * Ngondro Retreat Part 2:
 URL:https://pristinemind.org/ngondro-retreat-part-2/
 
-Password (Case Sensitive): Ngondro
+Password (Case Sensitive): Ngo....
 
 * https://pristinemind.org
   
