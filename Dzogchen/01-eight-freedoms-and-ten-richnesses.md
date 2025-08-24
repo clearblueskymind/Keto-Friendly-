@@ -5,6 +5,8 @@
 
 With teachings from: Orgyen Chowang 
 
+* Prerequisites: https://pristinemind.secure.retreat.guru/wp-content/uploads/sites/47/2025/08/Ngondro-Accumulation-Request-Summary.pdf
+
 * https://pristinemind.org
   
 * https://chatgpt.com/share/68aa1f97-78cc-800f-855f-5f0ca008dd08
