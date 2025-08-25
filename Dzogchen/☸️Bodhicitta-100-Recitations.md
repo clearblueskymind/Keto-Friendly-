@@ -12,10 +12,10 @@ If you like, I can give you a simple, complete Vajrayana bodhicitta recitation t
 
 ---
 
-## This is the seed of compassion, 
-repeated with sincerity and mindfulness, 
-each time sending loving-kindness outward to all beings 
-while strengthening your own awakened mind.
+* This is the seed of compassion, 
+* repeated with sincerity and mindfulness, 
+* each time sending loving-kindness outward to all beings 
+* while strengthening your own awakened mind.
 
 ---
 
