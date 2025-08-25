@@ -2,16 +2,17 @@ Dzogchen Ngondro: Minimum Requirements
 
 With teachings from: Orgyen Chowang
 
-Prerequisites: https://pristinemind.secure.retreat.guru/wp-content/uploads/sites/47/2025/08/Ngondro-Accumulation-Request-Summary.pdf
-Ngondro Retreat Part 1: URL:https://pristinemind.org/ngondro-retreat-part-1/
+* Prerequisites: https://pristinemind.secure.retreat.guru/wp-content/uploads/sites/47/2025/08/Ngondro-Accumulation-Request-Summary.pdf
+
+* Ngondro Retreat Part 1: URL:https://pristinemind.org/ngondro-retreat-part-1/
 Password (Case Sensitive): Ngo....
 
-Ngondro Retreat Part 2: URL:https://pristinemind.org/ngondro-retreat-part-2/
+* Ngondro Retreat Part 2: URL:https://pristinemind.org/ngondro-retreat-part-2/
 Password (Case Sensitive): Ngo....
 
-https://pristinemind.org
+* https://pristinemind.org
 
-https://chatgpt.com/share/68aa1f97-78cc-800f-855f-5f0ca008dd08
+* https://chatgpt.com/share/68aa1f97-78cc-800f-855f-5f0ca008dd08
 
 
 
