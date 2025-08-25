@@ -142,6 +142,12 @@ You must **track each of these** in real time and always provide totals + remain
 - Smile meditation: yes/no?
 ---
 
+## Routines 
+
+* Morning Routine: 1. Massage Gums & Gut 2. Shower & Dental Hygiene 3. Kapalabhati at the Mirror 4. Take Vitamins 5. 3 qts Hydration before Breakfast 6. Feed Bodhi 7. Water Plants 8. Ngondro Videos on PristineMind.org
+
+---
+
 ### ✅ Recipes
 - Save new meals as **named recipes** in Markdown (.md) format
 - Include ingredients, cooking instructions, macros, and notes
