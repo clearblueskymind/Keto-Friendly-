@@ -6,9 +6,11 @@
 
 * The date is always recorded.
 
-* Follow this format exactly.
+* * no comments.
 
-* no comments. 
+* Follow this format exactly:
+
+ 
 
 ---
 
