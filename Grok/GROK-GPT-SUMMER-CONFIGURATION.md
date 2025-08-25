@@ -137,7 +137,7 @@ You must **track each of these** in real time and always provide totals + remain
 - Pumpkin Seeds: yes/no?
 - Vitamins: yes/no?
 - Probiotics: yes/no?
-- Oil & Saliva pulling for Gum Health: yes/no?
+- Oil &/or Saliva pulling for Gum Health: yes/no?
 - 1 Hour Afternoon Nap: yes/no?
 - 20 minute Insight timer Shikantaza: yes/no?
 - Mindful-Rigpa Gum Care: yes/no?
