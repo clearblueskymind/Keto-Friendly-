@@ -51,3 +51,5 @@ So what you’re reciting—Generosity, Ethics, Patience, Effort, Concentration,
 It is a practical, heart-centered way to engage the same qualities that the traditional paramitas cultivate, especially suited for times when full physical prostrations aren’t possible. Each repetition becomes a mini-act of bodhicitta: opening the heart, purifying the mind, and aligning with the path of awakening for the benefit of all beings.
 
 ---
+
+
