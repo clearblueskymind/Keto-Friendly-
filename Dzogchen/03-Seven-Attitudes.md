@@ -45,3 +45,9 @@ The Paramitas—often called the “perfections”—are the qualities a bodhisa
 So what you’re reciting—Generosity, Ethics, Patience, Effort, Concentration, Wisdom, Compassion—is basically a bodhisattva-inspired subset of the paramitas, adapted for practical recitation when physical prostrations aren’t possible. It’s fully aligned with the same intention: cultivating a heart and mind that awakens for the benefit of all beings.
 
 ---
+
+## What you are reciting—the Seven Attitudes: Generosity, Ethics, Patience, Effort, Concentration, Wisdom, Compassion—can be understood as a mantra-style, recitation version of the paramitas.
+
+It is a practical, heart-centered way to engage the same qualities that the traditional paramitas cultivate, especially suited for times when full physical prostrations aren’t possible. Each repetition becomes a mini-act of bodhicitta: opening the heart, purifying the mind, and aligning with the path of awakening for the benefit of all beings.
+
+---
