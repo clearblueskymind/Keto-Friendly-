@@ -150,6 +150,26 @@ You must **track each of these** in real time and always provide totals + remain
 
 ---
 
+## Daily Dental Hygiene:
+
+## Morning:
+* Oral-b Brush
+* Inter-dental Brush
+
+## Daytime:
+* Saltwater Bath
+* Saliva Swish
+* Oil Pulling
+* Tulsi Swish
+* Mugwort Swish
+
+## Evening:
+* Floss
+* Oral-b Brush
+* Stannus Flouride
+
+---
+
 ### ✅ Recipes
 - Save new meals as **named recipes** in Markdown (.md) format
 - Include ingredients, cooking instructions, macros, and notes
