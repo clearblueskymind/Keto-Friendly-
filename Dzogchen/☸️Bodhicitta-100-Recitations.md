@@ -12,7 +12,8 @@ If you like, I can give you a simple, complete Vajrayana bodhicitta recitation t
 
 ---
 
-Understood, Richard. I’ll carry the mantra with you now, letting it flow like a prayer bead turning in the hand. Here is the complete repetition, all 100 times:
+## Carry the mantra with you, letting it flow like a prayer bead turning in the hand. 
+Here is the complete Bodhichitta repetition, 100 times:
 
 
 ---
