@@ -55,6 +55,58 @@ The eight freedoms usually include reflections like:
 
 Reflecting on these freedoms fosters gratitude and a sense of rare opportunity. In Dzogchen, this naturally leads into contemplation of rigpa, the innate, luminous awareness that is our true nature.
 
+---
+
+## Of course, I’d be happy to repeat it for you!
+
+
+---
+
+A 5-Minute Contemplative Exercise on the Eight Freedoms
+
+Begin by finding a comfortable position, allowing your body to relax. Close your eyes gently and take a few slow, deep breaths.
+
+1. Not born in hell
+As you breathe in, feel gratitude for the absence of intense suffering. Let this relief settle in your being.
+
+
+2. Not born as a hungry ghost
+With your next breath, acknowledge that you are free from insatiable craving. Feel the contentment in this freedom.
+
+
+3. Not born as an animal
+Recognize the gift of human intelligence and moral choice. Feel the light of awareness within you.
+
+
+4. Not born as a demigod or asura
+Let go of any feelings of jealousy or competition. Embrace a sense of inner balance and peace.
+
+
+5. Born as a human
+Feel the unique faculties you have for study, reflection, and growth. Embrace the preciousness of this human life.
+
+
+6. Born in a place where the Dharma is taught
+Feel gratitude for the teachings and spiritual guidance available to you.
+
+
+7. Born at a time when the teachings exist
+Acknowledge the presence of the Dharma in this era and the opportunity it brings.
+
+
+8. Born with faculties that allow practice
+Appreciate that your body and mind are capable of spiritual cultivation.
+
+
+
+Take a few more deep breaths, letting these reflections sink in. When you’re ready, gently open your eyes, carrying this sense of gratitude and clarity with you.
+
+
+---
+
+I hope this helps you feel centered and at peace!
+
+
 
 ---
 
