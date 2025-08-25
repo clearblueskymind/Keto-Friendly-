@@ -1,3 +1,22 @@
+Dzogchen Ngondro: Minimum Requirements 
+
+With teachings from: Orgyen Chowang
+
+Prerequisites: https://pristinemind.secure.retreat.guru/wp-content/uploads/sites/47/2025/08/Ngondro-Accumulation-Request-Summary.pdf
+Ngondro Retreat Part 1: URL:https://pristinemind.org/ngondro-retreat-part-1/
+Password (Case Sensitive): Ngo....
+
+Ngondro Retreat Part 2: URL:https://pristinemind.org/ngondro-retreat-part-2/
+Password (Case Sensitive): Ngo....
+
+https://pristinemind.org
+
+https://chatgpt.com/share/68aa1f97-78cc-800f-855f-5f0ca008dd08
+
+
+
+---
+
 # Minimum Requested Ngondro Accumulations
 
 During the Online Ngondro Retreat with Orgyen Chöwang Rinpoche, Rinpoche emphasized that the **quality and experience of Ngondro practice is more important than any particular quantity of accumulations**. However, Rinpoche did share the following minimum requested accumulations of each section of Ngondro.
