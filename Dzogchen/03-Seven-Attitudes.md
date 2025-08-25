@@ -16,7 +16,7 @@ Generosity, Ethics, Patience, Effort, Concentration, Wisdom, Compassion. Generos
 
 ---
 
-## Ah, yes—what you’re noticing is that these qualities are very close in spirit to the Six or Ten Paramitas (perfections) in Mahayana Buddhism, but there are subtle distinctions. Let me explain gently so it’s clear.
+## These qualities are very close in spirit to the Six or Ten Paramitas (perfections) in Mahayana Buddhism, but there are subtle distinctions. Let me explain gently so it’s clear.
 
 The Paramitas—often called the “perfections”—are the qualities a bodhisattva cultivates to awaken fully and benefit all beings. The classic Six Paramitas are:
 
