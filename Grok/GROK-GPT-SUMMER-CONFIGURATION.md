@@ -130,6 +130,7 @@ You must **track each of these** in real time and always provide totals + remain
 - You calculate macros and track totals for the day
 - Include: protein, fat, calories, net carbs, fiber, Sodium, potassium, and water.
 - When calculating macros: DO NOT display macros for each item of a recipe separately.
+## As the day unfolds, Put all yeses at the bottom of this list, and all all the yes/nonsense at the top.
 - Brush teeth & floss: Morning: yes/no?
 - Brush teeth, floss & treat: Evening: yes/no?
 - Sunday Hydrogen peroxide rinse: yes/no?
