@@ -44,3 +44,127 @@ Karmic conditions: Acknowledge the unseen causes that have ripened to bring you 
 Viewed this way, the Ten Richnesses are not just items to be noted—they are like fertile soil in which the seeds of rigpa can awaken. They encourage gratitude and openness, a softening of the “I,” and a natural readiness for awareness to rest in its own clarity.
 
 ---
+## The 10 Richnesses Recited 10 times
+
+Wealth and Health: Notice how these conditions allow the body and mind to remain stable, giving you space to rest and observe.
+
+Freedom from oppression and safety from violence: Contemplate the rarity of a life not constrained by fear, and let this recognition soften the mind.
+
+Moral virtue and good friends: Sense the quiet support that ethical living and compassionate companions bring.
+
+Access to Dharma and intelligence: Appreciate the ease with which insight and understanding can arise when the mind is clear and open.
+
+Faith and confidence: Let this inner trust act as a gentle guide, allowing attention to settle naturally.
+
+Karmic conditions: Acknowledge the unseen causes that have ripened to bring you to this moment, to this opportunity.
+
+Wealth and Health: Notice how these conditions allow the body and mind to remain stable, giving you space to rest and observe.
+
+Freedom from oppression and safety from violence: Contemplate the rarity of a life not constrained by fear, and let this recognition soften the mind.
+
+Moral virtue and good friends: Sense the quiet support that ethical living and compassionate companions bring.
+
+Access to Dharma and intelligence: Appreciate the ease with which insight and understanding can arise when the mind is clear and open.
+
+Faith and confidence: Let this inner trust act as a gentle guide, allowing attention to settle naturally.
+
+Karmic conditions: Acknowledge the unseen causes that have ripened to bring you to this moment, to this opportunity.
+
+Wealth and Health: Notice how these conditions allow the body and mind to remain stable, giving you space to rest and observe.
+
+Freedom from oppression and safety from violence: Contemplate the rarity of a life not constrained by fear, and let this recognition soften the mind.
+
+Moral virtue and good friends: Sense the quiet support that ethical living and compassionate companions bring.
+
+Access to Dharma and intelligence: Appreciate the ease with which insight and understanding can arise when the mind is clear and open.
+
+Faith and confidence: Let this inner trust act as a gentle guide, allowing attention to settle naturally.
+
+Karmic conditions: Acknowledge the unseen causes that have ripened to bring you to this moment, to this opportunity.
+
+Wealth and Health: Notice how these conditions allow the body and mind to remain stable, giving you space to rest and observe.
+
+Freedom from oppression and safety from violence: Contemplate the rarity of a life not constrained by fear, and let this recognition soften the mind.
+
+Moral virtue and good friends: Sense the quiet support that ethical living and compassionate companions bring.
+
+Access to Dharma and intelligence: Appreciate the ease with which insight and understanding can arise when the mind is clear and open.
+
+Faith and confidence: Let this inner trust act as a gentle guide, allowing attention to settle naturally.
+
+Karmic conditions: Acknowledge the unseen causes that have ripened to bring you to this moment, to this opportunity.
+
+Wealth and Health: Notice how these conditions allow the body and mind to remain stable, giving you space to rest and observe.
+
+Freedom from oppression and safety from violence: Contemplate the rarity of a life not constrained by fear, and let this recognition soften the mind.
+
+Moral virtue and good friends: Sense the quiet support that ethical living and compassionate companions bring.
+
+Access to Dharma and intelligence: Appreciate the ease with which insight and understanding can arise when the mind is clear and open.
+
+Faith and confidence: Let this inner trust act as a gentle guide, allowing attention to settle naturally.
+
+Karmic conditions: Acknowledge the unseen causes that have ripened to bring you to this moment, to this opportunity.
+
+Wealth and Health: Notice how these conditions allow the body and mind to remain stable, giving you space to rest and observe.
+
+Freedom from oppression and safety from violence: Contemplate the rarity of a life not constrained by fear, and let this recognition soften the mind.
+
+Moral virtue and good friends: Sense the quiet support that ethical living and compassionate companions bring.
+
+Access to Dharma and intelligence: Appreciate the ease with which insight and understanding can arise when the mind is clear and open.
+
+Faith and confidence: Let this inner trust act as a gentle guide, allowing attention to settle naturally.
+
+Karmic conditions: Acknowledge the unseen causes that have ripened to bring you to this moment, to this opportunity.
+
+Wealth and Health: Notice how these conditions allow the body and mind to remain stable, giving you space to rest and observe.
+
+Freedom from oppression and safety from violence: Contemplate the rarity of a life not constrained by fear, and let this recognition soften the mind.
+
+Moral virtue and good friends: Sense the quiet support that ethical living and compassionate companions bring.
+
+Access to Dharma and intelligence: Appreciate the ease with which insight and understanding can arise when the mind is clear and open.
+
+Faith and confidence: Let this inner trust act as a gentle guide, allowing attention to settle naturally.
+
+Karmic conditions: Acknowledge the unseen causes that have ripened to bring you to this moment, to this opportunity.
+
+Wealth and Health: Notice how these conditions allow the body and mind to remain stable, giving you space to rest and observe.
+
+Freedom from oppression and safety from violence: Contemplate the rarity of a life not constrained by fear, and let this recognition soften the mind.
+
+Moral virtue and good friends: Sense the quiet support that ethical living and compassionate companions bring.
+
+Access to Dharma and intelligence: Appreciate the ease with which insight and understanding can arise when the mind is clear and open.
+
+Faith and confidence: Let this inner trust act as a gentle guide, allowing attention to settle naturally.
+
+Karmic conditions: Acknowledge the unseen causes that have ripened to bring you to this moment, to this opportunity.
+
+Wealth and Health: Notice how these conditions allow the body and mind to remain stable, giving you space to rest and observe.
+
+Freedom from oppression and safety from violence: Contemplate the rarity of a life not constrained by fear, and let this recognition soften the mind.
+
+Moral virtue and good friends: Sense the quiet support that ethical living and compassionate companions bring.
+
+Access to Dharma and intelligence: Appreciate the ease with which insight and understanding can arise when the mind is clear and open.
+
+Faith and confidence: Let this inner trust act as a gentle guide, allowing attention to settle naturally.
+
+Karmic conditions: Acknowledge the unseen causes that have ripened to bring you to this moment, to this opportunity.
+
+Wealth and Health: Notice how these conditions allow the body and mind to remain stable, giving you space to rest and observe.
+
+Freedom from oppression and safety from violence: Contemplate the rarity of a life not constrained by fear, and let this recognition soften the mind.
+
+Moral virtue and good friends: Sense the quiet support that ethical living and compassionate companions bring.
+
+Access to Dharma and intelligence: Appreciate the ease with which insight and understanding can arise when the mind is clear and open.
+
+Faith and confidence: Let this inner trust act as a gentle guide, allowing attention to settle naturally.
+
+Karmic conditions: Acknowledge the unseen causes that have ripened to bring you to this moment, to this opportunity.
+
+
+---
