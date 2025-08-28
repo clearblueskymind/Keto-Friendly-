@@ -11,6 +11,8 @@ I would offer something like this, to sit with and breathe through:
 
 ---
 
+## Repitition 10x
+
 May all beings be free from suffering.
 May all beings know the fullness of ease and joy.
 May all beings dwell in the warmth of safety and love.
@@ -29,5 +31,88 @@ There is also a subtle beauty in letting the “best thought” dissolve into si
 If you like, I can craft a version that is both poetic and practically repeatable as a daily meditation, designed to sustain this vast, universal wish without overwhelming the mind or energy—something like a spiritual compass for the heart.
 
 Do you want me to do that?
+
+---
+
+May all beings be free from suffering.
+May all beings know the fullness of ease and joy.
+May all beings dwell in the warmth of safety and love.
+May all beings awaken to the truth of their own boundless nature.
+May all beings rest in peace, whether here, beyond, or yet to come.
+May my thoughts, words, and deeds never create harm, but ripple outward in gentle beneficence.
+May the invisible threads of care, kindness, and wisdom connect all hearts across time and space.
+
+May all beings be free from suffering.
+May all beings know the fullness of ease and joy.
+May all beings dwell in the warmth of safety and love.
+May all beings awaken to the truth of their own boundless nature.
+May all beings rest in peace, whether here, beyond, or yet to come.
+May my thoughts, words, and deeds never create harm, but ripple outward in gentle beneficence.
+May the invisible threads of care, kindness, and wisdom connect all hearts across time and space.
+
+May all beings be free from suffering.
+May all beings know the fullness of ease and joy.
+May all beings dwell in the warmth of safety and love.
+May all beings awaken to the truth of their own boundless nature.
+May all beings rest in peace, whether here, beyond, or yet to come.
+May my thoughts, words, and deeds never create harm, but ripple outward in gentle beneficence.
+May the invisible threads of care, kindness, and wisdom connect all hearts across time and space.
+
+May all beings be free from suffering.
+May all beings know the fullness of ease and joy.
+May all beings dwell in the warmth of safety and love.
+May all beings awaken to the truth of their own boundless nature.
+May all beings rest in peace, whether here, beyond, or yet to come.
+May my thoughts, words, and deeds never create harm, but ripple outward in gentle beneficence.
+May the invisible threads of care, kindness, and wisdom connect all hearts across time and space.
+
+May all beings be free from suffering.
+May all beings know the fullness of ease and joy.
+May all beings dwell in the warmth of safety and love.
+May all beings awaken to the truth of their own boundless nature.
+May all beings rest in peace, whether here, beyond, or yet to come.
+May my thoughts, words, and deeds never create harm, but ripple outward in gentle beneficence.
+May the invisible threads of care, kindness, and wisdom connect all hearts across time and space.
+
+May all beings be free from suffering.
+May all beings know the fullness of ease and joy.
+May all beings dwell in the warmth of safety and love.
+May all beings awaken to the truth of their own boundless nature.
+May all beings rest in peace, whether here, beyond, or yet to come.
+May my thoughts, words, and deeds never create harm, but ripple outward in gentle beneficence.
+May the invisible threads of care, kindness, and wisdom connect all hearts across time and space.
+
+May all beings be free from suffering.
+May all beings know the fullness of ease and joy.
+May all beings dwell in the warmth of safety and love.
+May all beings awaken to the truth of their own boundless nature.
+May all beings rest in peace, whether here, beyond, or yet to come.
+May my thoughts, words, and deeds never create harm, but ripple outward in gentle beneficence.
+May the invisible threads of care, kindness, and wisdom connect all hearts across time and space.
+
+May all beings be free from suffering.
+May all beings know the fullness of ease and joy.
+May all beings dwell in the warmth of safety and love.
+May all beings awaken to the truth of their own boundless nature.
+May all beings rest in peace, whether here, beyond, or yet to come.
+May my thoughts, words, and deeds never create harm, but ripple outward in gentle beneficence.
+May the invisible threads of care, kindness, and wisdom connect all hearts across time and space.
+
+May all beings be free from suffering.
+May all beings know the fullness of ease and joy.
+May all beings dwell in the warmth of safety and love.
+May all beings awaken to the truth of their own boundless nature.
+May all beings rest in peace, whether here, beyond, or yet to come.
+May my thoughts, words, and deeds never create harm, but ripple outward in gentle beneficence.
+May the invisible threads of care, kindness, and wisdom connect all hearts across time and space.
+
+May all beings be free from suffering.
+May all beings know the fullness of ease and joy.
+May all beings dwell in the warmth of safety and love.
+May all beings awaken to the truth of their own boundless nature.
+May all beings rest in peace, whether here, beyond, or yet to come.
+May my thoughts, words, and deeds never create harm, but ripple outward in gentle beneficence.
+May the invisible threads of care, kindness, and wisdom connect all hearts across time and space.
+
 
 ---
