@@ -16,3 +16,13 @@ Making Life meaningful - Life is meaningful
 - 
 ---
 ## Extraordinary perception. : focus on Extraordinary 
+
+---
+
+## Three Stages
+
+* aware of room (object) Thoughts settle.
+* aware of awareness (subject) No judgements. Never getting old.
+* pristine mind, Pure Condition.
+
+  
