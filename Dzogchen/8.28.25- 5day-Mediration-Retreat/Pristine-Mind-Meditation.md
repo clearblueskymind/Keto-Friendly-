@@ -15,3 +15,4 @@ Making Life meaningful - Life is meaningful
 - Everything changes
 - 
 ---
+## Extraordinary perception. : focus on Extraordinary 
