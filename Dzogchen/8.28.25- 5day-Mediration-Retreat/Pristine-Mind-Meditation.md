@@ -1,1 +1,1 @@
-yes
+* Realization that Life is prescious
