@@ -131,19 +131,19 @@ You must **track each of these** in real time and always provide totals + remain
 - Include: protein, fat, calories, net carbs, fiber, Sodium, potassium, and water.
 - When calculating macros: DO NOT display macros for each item of a recipe separately.
 ## As the day unfolds, Put all yeses at the bottom of this list, and all all the yes/nonsense at the top.
-- Brush teeth & floss: Morning: yes/no?
-- Brush teeth, floss & treat: Evening: yes/no?
-- Sunday Hydrogen peroxide rinse: yes/no?
-- Kombucha: yes/no?
-- Pumpkin Seeds: yes/no?
-- Vitamins: yes/no?
-- Probiotics: yes/no?
-- Oil &/or Saliva pulling for Gum Health: yes/no?
-- Chew wheatgrass: yes/no?
-- Afternoon Nap: yes/no?
-- 20 minute Insight timer Shikantaza: yes/no?
-- Dzogchen Ngondro: yes/no?
-- Smile meditation: yes/no?
+- Brush teeth & floss: Morning: ?
+- Brush teeth, floss & treat: Evening: ?
+- Sunday Hydrogen peroxide rinse: ?
+- Kombucha: ?
+- Pumpkin Seeds: ?
+- Vitamins: ?
+- Probiotics: ?
+- Oil &/or Saliva pulling for Gum Health: ?
+- Chew wheatgrass: ?
+- Afternoon Nap: ?
+- 20 minute Insight timer Shikantaza: ?
+- Dzogchen Ngondro: ?
+- Smile meditation: ?
 ---
 
 ## Routines 
