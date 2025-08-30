@@ -50,7 +50,7 @@ Making Life meaningful - Life is meaningful
 * Pristine Mind page 49 Padmasamvhava
 
   
-## Saturday Afternoon
+## Day 2 Saturday Afternoon
   
   * Meditation is the One medicine.
   * Mind is pure. mental events not who you are. just passing clouds.
@@ -64,6 +64,13 @@ Making Life meaningful - Life is meaningful
   * Mental events are just mental events.
   * 
 
-## AFTER DINNER
+## Day 2 AFTER DINNER
 
+
+* mental events are illusions.
+* mind is fundamentally pure.
+* 12 different vajra laughter
+* mental events never exist in pure awareness.
+* fundamentally we are pure
+* 
 * 
