@@ -3,7 +3,7 @@
 A tender, keto-friendly dish with nourishing broth, designed for ME/CFS low-effort prep and fat-burning phase. Yields ~4 servings (3 oz meat each).
 
 ## Ingredients
-- 16 oz bone-in top sirloin (~12 oz edible meat)
+- 16 oz bone-in top sirloin or brisket or beef (~12 oz edible meat)
 - 7 cloves garlic (~21g)
 - 2 oz carrots (~57g)
 - 2 oz celery (~57g)
