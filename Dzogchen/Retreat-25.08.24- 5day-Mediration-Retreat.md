@@ -73,4 +73,13 @@ Making Life meaningful - Life is meaningful
 * mental events never exist in pure awareness.
 * fundamentally we are pure
 * 
-* 
+
+## Day 2 session after break
+
+## Day 3 First session:
+
+## Day 3 First session After Break:
+
+## Day 3 After Dinner session:
+
+## Day 3 After Dinner session Break:
