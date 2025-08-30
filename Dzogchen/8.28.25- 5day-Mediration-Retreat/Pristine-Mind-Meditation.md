@@ -48,5 +48,22 @@ Making Life meaningful - Life is meaningful
 * ME: What is this?
 * What is this consciousness?
 * Pristine Mind page 49 Padmasamvhava
-* 
+
+  
+## Saturday Afternoon
+  
+  * Meditation is the One medicine.
+  * Mind is pure. mental events not who you are. just passing clouds.
+  * Mental events are just mental events.
+  * ME: Liberation from mental events.
+  * Peace of mind is not a mental event. it is minds natural state.
+  * Accurate understanding: .Mind, consciousness, is pure awareness
+  * mental events are circumstantial
+  * purw awareness is nature of your consciousness
+  * when you know mental events are mental events, then you have choice. Happiness and sadness becomes a choice
+  * Mental events are just mental events.
+  * 
+
+## AFTER DINNER
+
 * 
