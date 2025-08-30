@@ -33,3 +33,52 @@ A tender, keto-friendly dish with nourishing broth, designed for ME/CFS low-effo
 - Pair with 3 oz spinach (microwave, 1 tsp olive oil) for +2g fiber, +20kcal.
 - Sip broth during Zoom for hydration, energy.
 - Store promptly to avoid spoilage.
+
+---
+
+## Option 2
+
+
+Here’s a gentle, straightforward path from there to fall-apart tender by lunchtime tomorrow:
+
+1. Add liquid before pressure cooking
+
+About 1–2 cups of broth (or water with onion/garlic if you prefer simple).
+
+You don’t need to submerge the roast — just enough liquid to create steam.
+
+
+
+2. Pressure cook on Low for 35 minutes
+
+This will soften the bottom round and start the collagen breakdown.
+
+Do a natural release (let it rest until the pressure drops on its own). That adds tenderness.
+
+
+
+3. Switch to Slow Cook – Low overnight
+
+Once pressure is released, set it on Slow Cook – Low with the lid on.
+
+This will gently hold the roast and keep braising it in its juices until lunch.
+
+If your roast is fairly lean, you might consider tossing in a little extra broth or even a splash of olive oil so it doesn’t dry out.
+
+
+
+4. Check at lunchtime
+
+By then, the roast should be fork-tender and infused with the braising liquid.
+
+Let it rest in the juices for 10–15 minutes before slicing or shredding.
+
+
+
+
+✨ You’ll have something very close to that “all-day crockpot tenderness,” but with the added depth from the pressure phase.
+
+---
+
+
+
