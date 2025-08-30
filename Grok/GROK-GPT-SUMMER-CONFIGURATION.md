@@ -139,6 +139,7 @@ You must **track each of these** in real time and always provide totals + remain
 - Vitamins: yes/no?
 - Probiotics: yes/no?
 - Oil &/or Saliva pulling for Gum Health: yes/no?
+- Chew wheatgrass: yes/no?
 - Afternoon Nap: yes/no?
 - 20 minute Insight timer Shikantaza: yes/no?
 - Dzogchen Ngondro: yes/no?
