@@ -1,4 +1,4 @@
-## Replay Links:
+c## Replay Links:
 
 * https://pristinemind.org/5-day-pure-awareness-retreat-replay-links/?mc_cid=a8e60b237d&mc_eid=ae47972200
 
@@ -95,6 +95,7 @@ FORGOT TO SAVE: LOVE COMPASSION PARAMITAS
 
 ## Day 3 session 4:
 Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
+* STAY IN ROOM. KEEP THOUGHTS IN ROOM.
 
 ---
 
