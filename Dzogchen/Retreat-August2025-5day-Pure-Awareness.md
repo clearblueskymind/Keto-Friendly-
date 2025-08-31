@@ -88,12 +88,13 @@ Making Life meaningful - Life is meaningful
 * Metta meditation 
 
 ## Day 3 session 2:
-* 
+* FORGOT TO SAVE
 
 ## Day 3 session: 3
+FORGOT TO SAVE
 
 ## Day 3 session 4:
-Bingo
+Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 
 ---
 
