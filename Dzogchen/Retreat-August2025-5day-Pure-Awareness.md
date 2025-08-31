@@ -93,6 +93,7 @@ Making Life meaningful - Life is meaningful
 ## Day 3 session: 3
 
 ## Day 3 session 4:
+Bingo
 
 ---
 
