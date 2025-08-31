@@ -96,7 +96,8 @@ FORGOT TO SAVE: LOVE COMPASSION PARAMITAS
 ## Day 3 session 4:
 Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 * STAY IN ROOM. KEEP THOUGHTS IN ROOM.
-
+* the mire you do, the more powerful the power of your meditation.
+* 
 ---
 
 ## Day 4 session 1
