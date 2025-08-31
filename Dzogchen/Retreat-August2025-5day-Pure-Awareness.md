@@ -80,6 +80,11 @@ Making Life meaningful - Life is meaningful
 
 
 ## Day 3 session 1:
+* Good heart, love, Compassion
+* 1. focus in 2. focus out
+* listening, contemplation reflection, meditation then experience. Path to real experience
+* develop cultivate love, thinking of others
+* high blood sugar, high cholesterol same as high ordinary mind. need lower ordinary mind. need more love.
 
 ## Day 3 session 2:
 
