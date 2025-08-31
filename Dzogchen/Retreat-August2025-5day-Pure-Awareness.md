@@ -77,14 +77,12 @@ Making Life meaningful - Life is meaningful
 * 12 different vajra laughter
 * mental events never exist in pure awareness.
 * fundamentally we are pure
-* 
 
-## Day 2 session after break
 
-## Day 3 First session:
+## Day 3 session 1:
 
-## Day 3 First session After Break:
+## Day 3 session 2:
 
-## Day 3 After Dinner session:
+## Day 3 session: 3
 
-## Day 3 After Dinner session Break:
+## Day 3 session 4:
