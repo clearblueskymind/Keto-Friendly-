@@ -85,9 +85,34 @@ Making Life meaningful - Life is meaningful
 * listening, contemplation reflection, meditation then experience. Path to real experience
 * develop cultivate love, thinking of others
 * high blood sugar, high cholesterol same as high ordinary mind. need lower ordinary mind. need more love.
+* Metta meditation 
 
 ## Day 3 session 2:
+* 
 
 ## Day 3 session: 3
 
 ## Day 3 session 4:
+
+---
+
+## Day 4 session 1
+
+## Day 4 session 2:
+
+## Day 4 session: 3
+
+## Day 4 session 4:
+
+---
+
+## Day 5 session 1
+
+## Day 5 session 2:
+
+## Day 5 session: 3
+
+## Day 5 session 4:
+
+
+---
