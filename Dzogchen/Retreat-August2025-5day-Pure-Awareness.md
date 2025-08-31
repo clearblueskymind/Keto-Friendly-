@@ -88,10 +88,10 @@ Making Life meaningful - Life is meaningful
 * Metta meditation 
 
 ## Day 3 session 2:
-* FORGOT TO SAVE
+* FORGOT TO SAVE: LOVE COMPASSION PARAMITAS 
 
 ## Day 3 session: 3
-FORGOT TO SAVE
+FORGOT TO SAVE: LOVE COMPASSION PARAMITAS 
 
 ## Day 3 session 4:
 Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
