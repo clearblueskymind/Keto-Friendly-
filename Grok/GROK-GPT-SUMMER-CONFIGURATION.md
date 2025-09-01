@@ -27,6 +27,15 @@ Macros:
 
 Daily Totals:  
 
+Daily Habits:
+oral Hygiene: Brush, Floss, Swish, Oil-Saliva Pulling, Salt bath
+Meal Prep: Tulsi tea, Pumpkin seeds, Kombucha, Keto Breakfast, Lunch, Dinner.
+Meditation: Pristine Mind
+Yoga: Sphinx-Child
+Misc: Water plants, tidy up, 1 hour Nap.
+Fasting: 6pm to 10 am
+
+
 Dzogchen Reminder:  
 
 Affirmation:
