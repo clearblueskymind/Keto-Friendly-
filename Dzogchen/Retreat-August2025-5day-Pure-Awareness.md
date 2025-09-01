@@ -135,12 +135,12 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 * In a nutshell, have right Perspective.
 * Clouds are not sky.
 * meditation is getting familiar present.
-* 
+* GUIDED MEDITATION VERY GOOD.
 *
 * * 
 ## Day 4 session 4:
 
-* 
+* Q&A Short meditation and Aspiration. 
 
 ---
 
