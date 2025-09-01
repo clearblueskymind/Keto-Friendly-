@@ -125,7 +125,19 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 * VERY GOOD GUIDED PRISTINE MIND 
 
 ## Day 4 session: 3
-
+* Training the mind:
+* Right Perspective means mind not roller coaster.
+* life depend on your Perspective.
+* life is prescious.  impermanence,  etc
+* Right mindset: things change, 
+*  Thoughts can mess up your life or make it good.
+*  How to live this world, peace, security.
+* 4in a nutshell, have right Perspective.
+*Clouds are not sky.
+* meditation is getting familiar present.
+* 
+*
+* * 
 ## Day 4 session 4:
 
 ---
