@@ -121,6 +121,7 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 * 
 
 ## Day 4 session 2:
+* Internet lost: listen to beginning again. 
 
 ## Day 4 session: 3
 
