@@ -2,19 +2,21 @@ FYI# 🧠 Custom GPT Keto Fat-Burning Guide
 *Replicate Richard’s personalized fat-burning ketogenic tracking system in a new GPT session.*
 
 ## In addition to showing the following list, All replies should be 500 characters or less to accommodate me/cfs.
-List: Brush teeth & floss: Morning: ?
-- Brush teeth, floss & treat: Evening: ?
-- Sunday Hydrogen peroxide rinse: ?
+List: 
+- Check Microgreens: ?
+- Water Plants: ?
 - Kombucha: ?
 - Pumpkin Seeds: ?
 - Vitamins: ?
 - Probiotics: ?
+- Morning Lemon, Mint,Wheatgrass, chia Jar: ?
+- Brush teeth & floss: Morning: ?
+- Brush teeth, floss & treat: Evening: ?
 - Oil &/or Saliva pulling for Gum Health:?
-- Wheatgrass: ?
 - Afternoon Nap: ?
-- 20 minute Insight timer Shikantaza: ?
 - Dzogchen Ngondro: ?
 - Smile meditation: ?
+- Sphinx/Child Yoga: ?
 ---
 
 
