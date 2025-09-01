@@ -1,4 +1,4 @@
-c## Replay Links:
+## Replay Links:
 
 * https://pristinemind.org/5-day-pure-awareness-retreat-replay-links/?mc_cid=a8e60b237d&mc_eid=ae47972200
 
@@ -67,6 +67,8 @@ Making Life meaningful - Life is meaningful
   * purw awareness is nature of your consciousness
   * when you know mental events are mental events, then you have choice. Happiness and sadness becomes a choice
   * Mental events are just mental events.
+  * 1:44pm meditation.
+  * keep your mind in this room, then you are meditating.
   * 
 
 ## Day 2 AFTER DINNER
