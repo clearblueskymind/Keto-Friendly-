@@ -102,6 +102,14 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 
 ## Day 4 session 1
 
+* Pristine: Deep cleaning of your mind
+* No one can look into your mind except you.
+* Mental events & pristine mind is like bread and butter, sky and clouds.
+* You need to understand your mind.
+* How your mind is.
+* Five negative emotions: like/dislike, attachment/aversion/anger, ego/arrogance,  five poisons of mind.
+* 
+* 
 ## Day 4 session 2:
 
 ## Day 4 session: 3
