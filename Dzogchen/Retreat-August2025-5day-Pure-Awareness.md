@@ -108,8 +108,16 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 * You need to understand your mind.
 * How your mind is.
 * Five negative emotions: like/dislike, attachment/aversion/anger, ego/arrogance,  five poisons of mind.
+* Five poisons are samsara.
+* Aspirationof Samantrabhadra.
+* Five poisons are baseless without root, and yet appear.
+* Mind has no root, but is root f everything.
+* negative emotions are baseless, like rainbow.
+* Unconditional Happiness.
 * 
+
 * 
+
 ## Day 4 session 2:
 
 ## Day 4 session: 3
