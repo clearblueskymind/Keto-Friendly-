@@ -132,13 +132,15 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 * Right mindset: things change, 
 *  Thoughts can mess up your life or make it good.
 *  How to live this world, peace, security.
-* 4in a nutshell, have right Perspective.
-*Clouds are not sky.
+* In a nutshell, have right Perspective.
+* Clouds are not sky.
 * meditation is getting familiar present.
 * 
 *
 * * 
 ## Day 4 session 4:
+
+* 
 
 ---
 
