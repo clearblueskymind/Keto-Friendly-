@@ -202,6 +202,7 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 * not controlled by 5 poisons
 * best plan, to have pure awareness.
 * die in pure awareness,  best.
+* 5:30 - 6:10 VERY GOOD MEDITATION
 * 
 
 
