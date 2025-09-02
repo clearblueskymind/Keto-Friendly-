@@ -161,10 +161,15 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 * Spiritual heart. devotion,  confidence.  love.
 * Good conditions are challenging. more freedoms. lazy, more options. More distractions.
 * Recognize good qualities. Appreciate good conditions
-* Compassion,  MEDITATION,  Devotion. You good. 
+* Compassion,  MEDITATION,  Devotion. Appreciation,  gratitude. good. 
+* Extraordinary thoughts.
+* what dominate your mind, dominate your life.
+* Then Your mind there is strength 
+* mindfulness,  Wisdom,  Compassion, then emotions will not control.
+* not controlled by ordinary mind.
+* 
 *
-*
-*
+* *
 * # Day 5 session 2:
 
 ## Day 5 session: 3
