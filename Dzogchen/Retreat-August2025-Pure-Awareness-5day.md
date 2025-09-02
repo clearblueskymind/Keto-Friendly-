@@ -171,6 +171,12 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 *
 * *
 * # Day 5 session 2:
+* rest your mind, all stress disappear.
+* when meditation,  not feeding negative thoughts or emotions.
+* meditation is like antibiotics for mind.
+* meditation people have more fresh thoughts.
+* ordinary experience disappear,  extraordinary experience increase.
+* MEDITATION PRACTICE VERY GOOD.
 
 ## Day 5 session: 3
 
