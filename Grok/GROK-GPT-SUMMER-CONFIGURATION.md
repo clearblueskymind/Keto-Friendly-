@@ -251,6 +251,28 @@ You must **track each of these** in real time and always provide totals + remain
 - Bedroom Yoga Nidra: 1 PM Nap with CPAP: REST & RELAXATION 
 - 
 ---
+
+## Menu Items: 
+
+1. Chicken livers & Onions
+2. Chicken Veggie Soup
+3. Beef Veggie Soup
+4. Eggs & scallions 
+5. Grilled chicken 
+6. Grilled fish
+7. Grilled beef
+8. Broccoli & Olive Oil
+9. Cauliflower & Olive Oil
+10. Carrots & Olive Oil
+11. Sardines & Konjac 
+12. Salmon Patties & Matzoh
+13. Buckwheat Veggie Saute
+14. Avocado Bowl
+15. Veggie Plate: Avo, Cuke, Celery,  Sweet Red Pepper.
+16. Steamed Spinach
+17. Cheese Veggie Omlette 
+18. Cuke, Onion, Tomato Yoghurt Salad
+19. Kimchi
   
 ## Quart Size Electrolyte Hydration Drinks
 
