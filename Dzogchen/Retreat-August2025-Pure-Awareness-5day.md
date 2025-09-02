@@ -186,6 +186,26 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 
 ## Day 5 session: 3
 
+* transforming the mind
+* cultivate love, Compassion,  gratitude
+* ordinary thoughts create ordinary experiences
+* identify your mind is pure awareness
+* goal of human beings is full awakening of pure awareness mind.
+* Unconditional Happiness
+* Your pristine awareness is who you really are.
+* the more Meditation the more actuality
+* remaining in pure awareness is the practice
+* disapating mental events.
+* 1st chaos,  thoughts as enemies.  2nd stage losing their power 3rd appear as allies. 4 all enlightened experience.
+* complete perfect enlightened not just temporary peace
+* when mind is pure, destination is pure,
+* not controlled by 5 poisons
+* best plan, to have pure awareness.
+* die in pure awareness,  best.
+* 
+
+
+
 ## Day 5 session 4:
 
 
