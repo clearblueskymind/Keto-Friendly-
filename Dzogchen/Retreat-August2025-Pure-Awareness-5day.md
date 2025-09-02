@@ -150,10 +150,22 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 * devotion to practice,  you stay there, you do.
 * appreciate any good thing.
 * recognize good things your life.
-* 
-* 
-
-## Day 5 session 2:
+* there are always challenges.  recognize appreciate good things.
+* Extraordinary teachings good
+* someone kind tou you, you must remember that.
+* Amidst the chaos in the world, I appreciate Dharma.
+* Source of happiness,  peace, contentment, confidence.
+* inner strength gives confidence
+* inside your mind.
+* love is always there. you have devotion,  you have confidence.  you have faith.
+* Spiritual heart. devotion,  confidence.  love.
+* Good conditions are challenging. more freedoms. lazy, more options. More distractions.
+* Recognize good qualities. Appreciate good conditions
+* Compassion,  MEDITATION,  Devotion. You good. 
+*
+*
+*
+* # Day 5 session 2:
 
 ## Day 5 session: 3
 
