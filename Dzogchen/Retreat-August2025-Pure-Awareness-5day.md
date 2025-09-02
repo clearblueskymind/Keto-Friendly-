@@ -208,6 +208,9 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 
 
 ## Day 5 session 4:
+* Recite the Dzogchen Aspiration of Buddha Samantabhadra
+* time to cut ordinary thoughts and actions.
+* 
 
 
 ---
