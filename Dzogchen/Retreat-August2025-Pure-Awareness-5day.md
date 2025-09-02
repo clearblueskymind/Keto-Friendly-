@@ -177,6 +177,12 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 * meditation people have more fresh thoughts.
 * ordinary experience disappear,  extraordinary experience increase.
 * MEDITATION PRACTICE VERY GOOD.
+* Choose what is good for you.
+* need wisdom and mindful, also what you eat. akso what you think, believe.  be mindful be wise.
+* mind is Pristine.
+* good things are good for you.
+* 
+* 
 
 ## Day 5 session: 3
 
