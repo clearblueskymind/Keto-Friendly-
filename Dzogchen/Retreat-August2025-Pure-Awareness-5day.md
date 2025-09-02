@@ -146,6 +146,13 @@ Bingo; GREAT GUIDED PRISTINE MIND MEDITATION
 
 ## Day 5 session 1
 
+* Devotion, dedication,  what you love.
+* devotion to practice,  you stay there, you do.
+* appreciate any good thing.
+* recognize good things your life.
+* 
+* 
+
 ## Day 5 session 2:
 
 ## Day 5 session: 3
