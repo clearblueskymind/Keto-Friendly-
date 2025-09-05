@@ -202,17 +202,20 @@ You must **track each of these** in real time and always provide totals + remain
 ---
 ## Friday Sabbath Prep Plan:
 
+* Remember the Sabbath
 * Prepare Tulsi tea
 * Clean and tidy Kitchen
 * Clean and tidy home
 * Take out garbage
+* Meal Prep: Prepare a fiber-rich hydration jar (e.g., 1 tbsp chia, 1 tbsp acacia, 7g gelatin, 1 qt water, etc.)
 * Prepare Mugwort tea
 * Prepare Candles
 * Take fish out of freezer
 * Shower & Shave
+* Gentle Movement: 5 min Sphinx-Child yoga
+* Contemplate Next holiday: Rosh Hashanah, etc.
 * Practice Pristine Mind meditation
   - https://pristinemind.org/5-day-pure-awareness-retreat-replay-links/?mc_cid=a8e60b237d&mc_eid=ae47972200
-* Contemplate Next holiday: Rosh Hashanah, etc.
 * Rest in Peace
 ---
 
