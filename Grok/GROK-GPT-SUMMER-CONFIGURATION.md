@@ -200,6 +200,18 @@ You must **track each of these** in real time and always provide totals + remain
 * Stannus Flouride
 
 ---
+## Friday Sabbath Prep Plan:
+
+* Clean and tidy Kitchen
+* Clean and tidy home
+* Take out garbage
+* Prepare Mugwort tea
+* Prepare Candles
+* Take fish out of freezer
+* Practice Pristine Mind meditation
+  - 
+
+---
 
 ### ✅ Recipes
 - Save new meals as **named recipes** in Markdown (.md) format
