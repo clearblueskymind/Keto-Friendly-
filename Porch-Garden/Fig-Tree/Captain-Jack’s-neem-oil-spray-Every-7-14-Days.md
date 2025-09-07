@@ -145,3 +145,7 @@ Because neem interrupts the reproductive cycle, over time the scale can be nearl
 So—rather than expecting the scale to vanish suddenly—you’ll be looking for signs of decline: no new clusters, less stickiness, less ant activity. That’s your true indicator that the neem is working.
 
 ---
+
+## now that you’ve blocked the ants, sprayed neem, and established a weekly routine, you’ve cut off both their food source and breeding grounds. That’s how you’re gradually reclaiming the tree’s space.
+
+---
