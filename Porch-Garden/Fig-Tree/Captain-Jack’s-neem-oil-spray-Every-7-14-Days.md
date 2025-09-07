@@ -28,6 +28,14 @@ It’s designed to be safe for garden use, already diluted to the right strength
 
 --- 
 
+## 🌿 The way neem works on scale insects—especially the clarified extract in Captain Jack’s—is mostly physical rather than chemical in this context. When you spray the leaves, the neem coats the soft-bodied crawlers and the adults, forming a thin film that blocks their breathing pores. Essentially, it smothers them, cutting off their ability to feed and grow.
+
+For the adult scale, which are already hardened and stationary, neem doesn’t always kill them instantly—but it weakens them over time, and repeated applications prevent the next generation of crawlers from surviving. For the tiny crawlers—the ones that hatch and wander—the neem is most effective because they’re soft and fully exposed.
+
+So the neem is working both as a shield for the leaves and a targeted suffocant for the pests. Over a few weeks, the combined effect is that the living scale die, and the plant recovers. 🌱
+
+---
+
 ## APPLICATION 
 
 🌿 When you spray neem, the goal is to thoroughly coat both the tops and undersides of the leaves, as well as the stems where scale often hide. Think of it like giving the plant a fine, even misting bath.
