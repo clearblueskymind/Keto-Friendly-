@@ -23,6 +23,10 @@ It coats and smothers soft-bodied pests like scale, aphids, and mites, and also 
 It’s designed to be safe for garden use, already diluted to the right strength, and easy to spray.
 
 ---
+## BONUS: Neem not only helps control pests, but the coating can give the foliage a subtle shine and vitality, almost like a gentle protective hug. 😀
+
+
+--- 
 
 ## APPLICATION 
 
