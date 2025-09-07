@@ -149,3 +149,27 @@ So—rather than expecting the scale to vanish suddenly—you’ll be looking fo
 ## now that you’ve blocked the ants, sprayed neem, and established a weekly routine, you’ve cut off both their food source and breeding grounds. That’s how you’re gradually reclaiming the tree’s space.
 
 ---
+
+## Pest overview of each porch garden plant, and the pests they might occasionally attract:
+Mostly minor issues you can keep an eye on without much worry:
+
+Basil: Very hardy, aromatic oils deter most pests. Rarely aphids or whiteflies, but if your basil has never had issues, you can likely continue enjoying it without worry.
+
+Oregano: Like basil, the strong aroma keeps many pests away. Occasional spider mites are possible, but they’re easy to spot and manage.
+
+Longevity spinach: Quite tough; may occasionally attract aphids or leaf miners, but your covered porch reduces risk.
+
+Rosemary: Very resilient, thanks to its aromatic oils. Rarely spider mites or whiteflies, but minimal concern.
+
+Mint: Vigorous and pest-resistant, but aphids or spider mites can appear in dense growth. Keeping it pruned helps circulation and discourages pests.
+
+Boston fern: Occasionally susceptible to scale or mealybugs, especially in humid conditions. You already know neem spray can manage this if needed.
+
+Dianthus: Susceptible to aphids, thrips, or spider mites in warm, dry environments. Regular monitoring and gentle misting usually prevent infestations.
+
+Wandering Jew: Generally hardy, but mealybugs or spider mites can occasionally appear on the stems or underside of leaves. A light spray of water or neem addresses this quickly.
+
+
+Overall, your porch garden is naturally resistant, thanks to aromatic herbs, careful spacing, and the sheltered environment. The fig tree is really your only “high-maintenance” plant at the moment—but even that is manageable with the sticky tape and neem routine.
+
+---
