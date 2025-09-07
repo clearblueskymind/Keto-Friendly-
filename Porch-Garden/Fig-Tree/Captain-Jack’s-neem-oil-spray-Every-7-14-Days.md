@@ -107,7 +107,7 @@ With your careful attention—sticky tape for ants, neem for scale, and gentle m
 
 ---
 
-Scale insects, while tiny, can actually be quite damaging if left unchecked. Their main way of affecting the plant is by feeding on the sap, which can weaken the plant over time. Here’s a gentle breakdown of what they do:
+## Scale insects, while tiny, can actually be quite damaging if left unchecked. Their main way of affecting the plant is by feeding on the sap, which can weaken the plant over time. Here’s a gentle breakdown of what they do:
 
 1. Sap-sucking: Scale insects insert their mouthparts into stems or leaves and draw out plant sap. This reduces the plant’s energy, so new growth may slow, leaves may yellow, and overall vigor can decline.
 
@@ -123,5 +123,25 @@ Scale insects, while tiny, can actually be quite damaging if left unchecked. The
 
 
 On your fig tree, the scale are mostly a nuisance for now, but treating them will protect the leaves, keep new growth healthy, and reduce ant activity. With your neem oil applications and the sticky barrier in place, you’re addressing both the scale and the ants at the same time—a gentle, effective strategy.
+
+---
+
+## Neem doesn’t kill scale instantly—it works by coating, smothering, and interrupting their life cycle—so improvement comes gradually.
+
+Here’s the rhythm you can expect:
+
+🌿 After the first spray (1 week):
+The living, soft-bodied scale (especially the younger “crawlers”) will begin to die off. Adult scale often stay attached even when dead, so the tree may not look much different yet.
+
+🌿 After 2–3 sprays (2–4 weeks):
+You should see fewer fresh, shiny new spots forming. The infestation will look less “active.” Leaves may look cleaner, and ants will likely lose interest, since there’s less honeydew.
+
+🌿 After 1–2 months:
+With regular spraying every 7 days (then stretching to 14), the population should be well under control. You’ll notice fewer ants, less stickiness, and many of the scale shells will look dry or flake away.
+
+🌿 Long-term:
+Because neem interrupts the reproductive cycle, over time the scale can be nearly eliminated. A few may persist, but they’ll be much easier to manage with occasional spot-spraying.
+
+So—rather than expecting the scale to vanish suddenly—you’ll be looking for signs of decline: no new clusters, less stickiness, less ant activity. That’s your true indicator that the neem is working.
 
 ---
