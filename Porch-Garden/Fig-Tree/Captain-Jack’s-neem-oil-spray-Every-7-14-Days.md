@@ -71,6 +71,16 @@ Every 10–14 days is sufficient for lighter infestations or as a maintenance ro
 
 The idea is to catch newly hatched scale insects before they become adults, since neem works best on soft-bodied insects. Keep an eye on the leaves, undersides, and stems. Reapply at the chosen interval until you see the scale population decrease.
 
+---
+
+That makes sense! Ants are often drawn to fig trees because of scale insects, which produce sweet honeydew that ants love. If the scale population is drying up or declining, the ants have less incentive to stick around. Here are a few quick thoughts:
+
+- **Check for residual scale**: Even a few lingering scale insects can attract ants. Inspect the leaves and stems closely, especially in shaded or humid spots, and remove any you find.
+- **Natural decline**: Cooler weather or seasonal changes might be reducing the scale population naturally, which in turn discourages the ants.
+- **Keep monitoring**: If the ant numbers are dropping, that’s a good sign. You could also try a sticky barrier (like Tanglefoot) around the trunk to block any remaining ants from climbing up.
+
+If you want to dive deeper into managing ants or scale on your fig tree, let me know what you’ve tried already or if you want specific tips!
+
 
 ---
 
