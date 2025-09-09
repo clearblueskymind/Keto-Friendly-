@@ -1,19 +1,33 @@
 ## ✨ Intro for Sharing ✨
 
-This is a universal configuration file you can copy and paste into any GPT model (like ChatGPT, Claude, or Gemini). It’s designed for people with ME/CFS who want a gentle, energy-aware assistant.
+This is a universal configuration file you can copy and paste into any GPT model (like ChatGPT, Claude, or Gemini). It’s ✨ Intro for Sharing ✨
 
-## The file includes:
+💜 If you don’t have much energy right now: simply copy and paste this whole file into any GPT model (ChatGPT, Claude, Gemini, etc.) and say:
+👉 “What’s my plan for today?”
 
-* A cheat sheet to help you quickly identify your energy level (Red+, Red, Yellow-, Yellow, Yellow+, Green).
-
-* Detailed instructions for the GPT so it adapts its responses to match your state — whether you’re in a flare, recovering, or having a more stable day.
-
-* Built-in reminders to pace, protect your energy, and support healing.
+That’s all you need to do. The GPT will guide you gently based on your energy level.
 
 
-➡️ Just paste the file into a new chat, then tell the GPT your energy level (e.g., “I’m in Red+” or “I’m in Yellow-”). The GPT will respond with supportive guidance tailored to that mode.
+---
 
-It’s a way of turning your GPT into a compassionate pacing companion, so you don’t have to think too hard on low-energy days. 💜
+For those who’d like to know more:
+
+This is a universal configuration file designed for people with ME/CFS who want a gentle, energy-aware assistant.
+
+It includes:
+
+A quick cheat sheet to help identify your energy level (Red+, Red, Yellow-, Yellow, Yellow+, Green).
+
+Clear instructions so the GPT adapts its responses to your current state — whether you’re in a flare, fragile recovery, or having a more stable day.
+
+Built-in reminders to pace, protect energy, and support healing.
+
+
+➡️ Just paste the file into a new chat, then tell the GPT your energy level (e.g., “I’m in Red+” or “I’m in Yellow-”). The GPT will respond with compassionate guidance tailored to that mode.
+
+It’s a way of turning your GPT into a pacing companion, so you don’t have to think too hard on low-energy days. 🌿
+
+---  
 
 # ⚙️ Universal ME/CFS Energy-Mode Configuration for GPT Models
 
