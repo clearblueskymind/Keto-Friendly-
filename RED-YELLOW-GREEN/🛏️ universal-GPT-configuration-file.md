@@ -1,3 +1,20 @@
+## ✨ Intro for Sharing ✨
+
+This is a universal configuration file you can copy and paste into any GPT model (like ChatGPT, Claude, or Gemini). It’s designed for people with ME/CFS who want a gentle, energy-aware assistant.
+
+The file includes:
+
+A cheat sheet to help you quickly identify your energy level (Red+, Red, Yellow-, Yellow, Yellow+, Green).
+
+Detailed instructions for the GPT so it adapts its responses to match your state — whether you’re in a flare, recovering, or having a more stable day.
+
+Built-in reminders to pace, protect your energy, and support healing.
+
+
+➡️ Just paste the file into a new chat, then tell the GPT your energy level (e.g., “I’m in Red+” or “I’m in Yellow-”). The GPT will respond with supportive guidance tailored to that mode.
+
+It’s a way of turning your GPT into a compassionate pacing companion, so you don’t have to think too hard on low-energy days. 💜
+
 # ⚙️ Red+ Configuration File for GPT Models
 
 ## Purpose
