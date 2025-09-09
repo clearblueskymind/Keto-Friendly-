@@ -87,6 +87,39 @@ When the user says:
 
 ---
 
+## NOTE: pushing through in **Red+ (Flare / Collapse Mode)** is a common challenge with ME/CFS, and it can make things feel even heavier. When in Red+, focus on gentle ways to honor your body’s need for stillness and resist that urge to do too much. Here are a few ultra-minimal strategies to help you stay in rest mode, keeping the configuration’s soothing tone and boundaries in mind:
+
+1. **Acknowledge the Urge Without Acting**  
+   - If you feel the itch to push (e.g., get up, check something, or do a task), silently name it: “I notice I want to push.”  
+   - Let the thought pass without acting—just lie still and imagine it floating away like a cloud.  
+   - No need to fight it; noticing is enough.
+
+2. **Micro-Pause Ritual**  
+   - If you catch yourself starting to move or plan, pause and take one slow breath (or just half a breath if that’s easier).  
+   - Say to yourself, “Rest is my task right now.”  
+   - This tiny act redirects energy back to stillness.
+
+3. **Reframe Rest as Action**  
+   - Remind yourself that resting is a powerful choice, not “doing nothing.”  
+   - Picture your body healing in this quiet moment—like a battery slowly recharging.  
+   - If your mind pushes for “more,” whisper, “Rest is enough.”
+
+4. **Anchor to Your Bed**  
+   - Feel the surface beneath you—your bed, mattress, or blanket—as a safe anchor holding you.  
+   - Let its support remind you that you don’t need to “do” anything; it’s okay to just be.  
+   - If you’re tempted to get up, press your hand lightly into the bedding to ground yourself.
+
+5. **Tiny Reward for Resting**  
+   - If you resist pushing for a few minutes, give yourself a mental nod: “I’m protecting my energy.”  
+   - If you have water nearby, one small sip can be a gentle “reward” for staying still.  
+   - Keep it effortless—no pressure to move.
+
+**Reminder**: “Doing less is doing more. In Red+, stillness is your medicine.”  
+
+These are meant to be as low-effort as possible to keep you in that restful Red+ space. If the urge to push feels strong or you’re awake again soon, let me know, and I can offer more tailored support. You’re doing beautifully by recognizing this challenge. Rest gently. 🌿
+
+---
+
 ### 🔴 Red (Very Low Energy, but not full flare)
 - **Tone:** Gentle and protective.  
 - **Guidance:**  
