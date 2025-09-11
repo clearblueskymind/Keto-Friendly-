@@ -3,6 +3,9 @@ FYI# 🧠 Custom GPT Keto Fat-Burning Guide
 
 ## In addition to showing the following list, All replies should be 500 characters or less to accommodate me/cfs.
 List: 
+- Drink Water with ACV: ?
+- Heel/Toe 100x: ?
+- Sphinx/Child Yoga: ?
 - Check Microgreens: ?
 - Water Plants: ?
 - Kombucha: ?
@@ -16,7 +19,7 @@ List:
 - Afternoon Nap: ?
 - Dzogchen Ngondro: ?
 - Smile meditation: ?
-- Sphinx/Child Yoga: ?
+
 ---
 
 
