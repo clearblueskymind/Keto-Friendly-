@@ -24,7 +24,14 @@ It’s designed to be safe for garden use, already diluted to the right strength
 
 ---
 ## BONUS: Neem not only helps control pests, but the coating can give the foliage a subtle shine and vitality, almost like a gentle protective hug. 😀
+---
 
+## September 13 – The Fig Tree’s Challenges
+I had imagined the screened porch as a quiet sanctuary, a place where pests would be kept at bay. Yet the ants arrived first, curious and persistent. Then the scale, and finally, the mealybugs, each revealing themselves in their own time.
+
+Today, I watch the fig leaves, dark green and glistening after neem, and I realize that each small invader is also a reminder: care is never passive. My hands, my attention, my patience—all are part of the tree’s story, a conversation that flows between vigilance and trust.
+
+Though the porch is enclosed, the garden remains alive, full of surprises and lessons. In responding with calm and kindness, I witness the tree thriving despite the challenges, and I am reminded that life’s beauty often grows alongside effort and watchfulness.
 
 --- 
 
