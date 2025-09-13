@@ -195,3 +195,45 @@ Wandering Jew: Generally hardy, but mealybugs or spider mites can occasionally a
 Overall, your porch garden is naturally resistant, thanks to aromatic herbs, careful spacing, and the sheltered environment. The fig tree is really your only “high-maintenance” plant at the moment—but even that is manageable with the sticky tape and neem routine.
 
 ---
+
+## Mealybugs 
+
+The white, cottony, fuzzy clusters visible on the veins and surfaces of your fig tree leaf are almost certainly mealybugs (a type of soft-bodied insect in the family Pseudococcidae). These pests are common on fig trees (both edible Ficus carica and ornamental varieties like fiddle-leaf figs), where they feed on plant sap, producing the characteristic white, waxy, cotton-like protective coating you see. They often cluster along veins, undersides of leaves, or stems, and can lead to sticky honeydew residue, weakened leaves, and potential sooty mold if untreated.
+
+Why not something else?
+
+Powdery mildew: This fungal issue can appear as white powder on fig leaves, but it's typically a flat, dusty coating (not fluffy or clustered like cotton) that rubs off easily and affects the upper leaf surface more uniformly, often in humid conditions.
+
+Thrips damage: These might cause silvery-white spots or scarring on leaves, but not the raised, fuzzy growths shown.
+
+Fig latex/sap: Figs produce milky white latex when cut, but it's a liquid that dries sticky, not a persistent cottony mass on intact leaves.
+
+
+How to confirm and treat
+
+Inspect the undersides of leaves, stems, and leaf axils for more of these pests—they hide well. If you gently touch one with a cotton swab dipped in rubbing alcohol, it should dissolve the waxy cover and reveal (and kill) the pinkish-white bug underneath.
+
+Treatment steps (start mild and escalate if needed):
+
+1. Isolate the plant: If indoors, move it away from other plants to prevent spread.
+
+
+2. Manual removal: For small infestations, dab each cluster with a cotton swab soaked in 70% rubbing alcohol (isopropyl). Wipe away residue with a damp cloth.
+
+
+3. Wash the plant: Hose off outdoors (if possible) or shower indoors with lukewarm water to dislodge bugs. Repeat every few days.
+
+
+4. Insecticidal soap or neem oil: Spray thoroughly (cover undersides), following label instructions—apply every 7-10 days for 2-3 weeks. These smother the pests and are safe for figs.
+
+
+5. Horticultural oil: For heavier infestations, use a dormant oil spray in cooler weather.
+
+
+6. Biological control: Introduce ladybugs or lacewings if outdoors; they're natural predators.
+
+
+
+Prevent recurrence by ensuring good airflow, bright indirect light, and avoiding overwatering/over-fertilizing, which attract mealybugs. If the infestation is severe or persists, consult a local extension service for region-specific advice.
+
+---
