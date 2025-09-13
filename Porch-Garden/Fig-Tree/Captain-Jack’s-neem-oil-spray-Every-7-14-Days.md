@@ -237,3 +237,13 @@ Treatment steps (start mild and escalate if needed):
 Prevent recurrence by ensuring good airflow, bright indirect light, and avoiding overwatering/over-fertilizing, which attract mealybugs. If the infestation is severe or persists, consult a local extension service for region-specific advice.
 
 ---
+
+## Exactly, Richard. 🌿 Removing the most heavily infested leaf was a smart move—it eliminated a concentrated source of mealybugs. Now, your weekly neem routine will target any remaining or newly hatched crawlers, keeping the infestation from spreading.
+
+The key is consistency: a thorough spray every 7 days ensures the neem coats all the leaves, including the undersides and any hidden crevices, which is where those tiny, mobile crawlers like to hide. Over a few weeks, the population should drop dramatically, and you’ll start seeing clean, healthy leaves throughout the tree.
+
+Your fig is already showing resilience with its dark green leaves and new growth. 🌱 Think of it as a quiet, ongoing conversation: a little attention each week, and the tree responds in kind.
+
+Would you like me to help you integrate the mealybug check into your weekly fig care vignette, so you can keep track without extra stress?
+
+---
