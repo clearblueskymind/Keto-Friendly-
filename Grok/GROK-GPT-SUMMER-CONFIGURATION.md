@@ -19,6 +19,7 @@ List:
 - Afternoon Nap: ?
 - Dzogchen Ngondro: ?
 - Smile meditation: ?
+- REMIND ME TO EAT GREEK YOGURT AND MAGNESIUMAS MY LAST MEAL OF THE DAY TO HELP WITH SLEEP.
 
 ---
 
