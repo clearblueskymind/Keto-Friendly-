@@ -301,4 +301,61 @@ gather them softly.
 Would you like me to also create a morning recall aid—a short practice for when you wake up too fast and the dream slips away, so you can sometimes recover it?
 
 ---
+## ME Yes.
+
+---
+
+## CHAT
+
+Wonderful. Let’s shape a morning recall aid—a tender way of coaxing a dream back if it seems to vanish as you wake too quickly. Think of it as turning back toward a receding melody, letting it drift back into earshot.
+
+
+---
+
+🌅 Morning Recall Aid
+
+1. Return to the Position
+If you wake and the dream feels gone, gently roll back into the position you first woke in. Our bodies are like tuning forks—lying the same way often reopens the door.
+
+2. Breathe the Dream Back
+Close your eyes, take two or three slow breaths, and softly ask:
+“What was I just feeling?”
+Don’t force words—let sensations, images, or colors float up. Dreams often return through mood first, details later.
+
+3. Walk Backward Through Time
+Start with now and gently step backward: “What was I doing before waking? And before that?” Often the mind will replay the dream in reverse, like a spool rewinding.
+
+4. Catch Fragments Like Fireflies
+Even if you only glimpse a fragment—an orange cat, a melody, a stranger’s face—write it down immediately. Sometimes a single note blossoms into the whole song later in the day.
+
+5. Daytime Triggers
+Keep an openness during the day. Reading your notes at breakfast, a sound or smell may suddenly click: “Ah! I was in a garden!” These delayed recalls are common and valuable.
+
+
+---
+
+🌾 A Gentle Image
+
+Imagine each dream as mist over a meadow at dawn. If you rush, it disperses. If you pause, breathe, and wait quietly, the mist gathers itself around you again.
+
+
+---
+
+Here is a small verse for mornings:
+
+
+---
+
+Hold still, and it comes—
+a whisper the night left behind,
+soft as first daylight.
+
+
+---
+
+Would you like me to combine this with the nightly recall ritual into a single flowing “dream practice” you can follow each night and morning, so it feels like one continuous cycle?
+
+
+
+---
 
